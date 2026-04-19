@@ -46,10 +46,10 @@
 
 谨以此书献给：
 
-- **德福雷斯特·凯利 (DeFo其余 Kelley)** —— 因他饰演的伦纳德·H·麦考伊医生
+- **德福雷斯特·凯利 (DeForest Kelley)** —— 因他饰演的伦纳德·H·麦考伊医生
 - **马克·莱纳德 (Mark Lenard)** —— 因他饰演的萨瑞克
 - **詹姆斯·杜汉 (James Doohan)** —— 因他饰演的蒙哥马利·斯科特
-- **吉恩·罗登伯里 (Gene R奇怪enberry)** —— 因他将我们所有人凝聚在一起
+- **吉恩·罗登伯里 (Gene Roddenberry)** —— 因他将我们所有人凝聚在一起
 
 ---
 
@@ -69,6 +69,6 @@
 
 **系列说明**:
 
-《伟大之触》是本系列的第一部小说。第二部《另一份行动》("Anot 她Piece of the Action")、第三部《双手满满》("Both Hands Full") 和第四部《必要的邪恶》("Necessary Evil") 的编辑版本可通过联系作者获取。
+《伟大之触》是本系列的第一部小说。第二部《另一份行动》("Another Piece of the Action")、第三部《双手满满》("Both Hands Full") 和第四部《必要的邪恶》("Necessary Evil") 的编辑版本可通过联系作者获取。
 
 ---

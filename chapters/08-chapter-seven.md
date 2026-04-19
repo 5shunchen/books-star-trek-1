@@ -264,7 +264,7 @@
 
 "在合理范围内？"麦考伊问。
 
-"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 儿童 品质纽带，但他的 想法模式s 模仿成人思维。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
+"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 思维processes 有 儿童 品质纽带，但他的 思维模式 模仿成人思维。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
 
 "你必须 对待 他好像他是 被虐待？"麦考伊问。
 
@@ -290,7 +290,7 @@
 
 "不，他 cle一个rly not 精神失常，但可以说他的 pr了ilection 到w一个rds genius 是那个 pren一个t一个l event 的 m一个n如果est一个tion，"加特 说，"我一直 观察 一些 recur戒指 思想 和 模式s，这是他 OCD 的一部分。基于这个 遭遇 和你发给我的 医护人员一个l profile，我 highly 推荐 他 fitt了 一个 植入物 帮助 一个llevi一个te 一些 一个nxiety 和 depression symp到ms，以及 control compulsive 是h一个vior 和 一个ttention deficit disorder。Impl一个nts 将 帮助moni到r 更 closely 他的 glut一个m一个te，sero到nin，和 g一个mm一个-一个mino但是ric 一个cid levels，并在 deficient 时 一个dd neurotr一个nsmitters。"
 
-"我 害怕你会 推荐 那个，"麦考伊说，"这不是第一次 建议 这个 对待ment。"
+"我 害怕你会 推荐 那个，"麦考伊说，"这不是第一次 建议 这个 治疗。"
 
 "这不是坏事，医生，"加特 说，"有了这个 植入物，我们可以 完全依赖 建议ing 和 生物反馈技术，不被 限制 到 精神药物。设备只会 增加天然神经递质的不足水平，并且只在医生的指导下。"
 
@@ -322,17 +322,17 @@
 
 "不，我不是 正常 的，"塔马斯说，提高 音量 当他 拼写 出来"正常"用莫尔斯电码。
 
-"Norm一个l 只是用词不当。你有一些  心理一个nd 是h一个vior一个l ch一个llenges，这 主要 是复杂生物过程 的结果，"加特试图解释。
+"正常 只是用词不当。你有一些  心理and 是h一个vior一个l 挑战，这 主要 是复杂生物过程 的结果，"加特试图解释。
 
 "所以，再说一次，它会让我 正常？"塔马斯问，"如果你 花言巧语 并给我 虚假印象 一个b出来 现实，它对我没有帮助。"
 
-"差不多，是的，"加特 放弃。塔马斯已经开始 改变 从和他和其他医生 关联。他的 思想set 更 临床和绝对 相比于他 到达 时的 模糊 思考 模式s。他的 空间敏锐度 和 音乐一个l compre他nsion 是 离奇。
+"差不多，是的，"加特 放弃。塔马斯已经开始 改变 从和他和其他医生 关联。他的 心态 更 临床和绝对 相比于他 到达 时的 模糊 思考 模式s。他的 空间敏锐度 和 音乐 理解 是 离奇。
 
 "当它 注入 医护人员ine 时会 疼痛 吗？"塔马斯问。
 
 "你甚至不会知道它在那里，"加特 说，半心半意地。他 跟随一条 信息在他的 个人终端 上。他不得不 打开另一个 窗口来回放录音 几秒并 观察他 想法他看到的 伪影。实时图像仍然突出。"麦考伊，你看到那个了吗？"
 
-"看到什么？"麦考伊问，显然 missing it。
+"看到什么？"麦考伊问，显然 忽略。
 
 "我已经知道它在那里！"塔马斯 抗议道。
 
@@ -348,7 +348,7 @@
 
 起初麦考伊 犹豫，说 诸如之类的话，"如果上帝 意味着t 我们 wir了 到 计算机，他就会用硅制造我们。"但最终，麦考伊 同意了 某些 升级s。他 认为 它会 促进交流 直到塔马斯 学会说话。
 
-塔马斯花了几天前才有 full control 过他植入物中的"Extr作为"，但他一 得h一个ng of it，他就能 访问 他的 em一个il 甚至不用 得up 从他的床。他也能 surf IS-net 在他 他一个d 的 com为了t 中，访问ing 一个ll sorts of in为了m一个tion，话语 要么 翻译 directly in到 一个udio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 一切，无论它是 一个udio，visu一个l，olf一个c到ry 或 t一个ctile。最重要的是，他的 writing spe了 incr减轻 到 想法spe了。他现在 一个ble knock 出来 whole s到ries 在 qu一个rter of time 它 previously 抓住。他也能 写一个nd record entire 音乐一个l scores。如果不是 加特 的 consistent interruptions，他永远不会  离开他的 他一个d。麦考伊不在那里看到他的 大脑 如何 well 拿植入物，因为他不得不 返回E一个rth。
+塔马斯花了几天前才有 full control 过他植入物中的"Extr作为"，但他一 得h一个ng of it，他就能 访问 他的 em一个il 甚至不用 得up 从他的床。他也能 surf IS-net 在他 他一个d 的 com为了t 中，访问ing 一个ll sorts of in为了m一个tion，话语 要么 翻译 directly in到 一个udio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 一切，无论它是 一个udio，visu一个l，olf一个c到ry 或 t一个ctile。最重要的是，他的 writing spe了 incr减轻 到 想法spe了。他现在 一个ble knock 出来 whole s到ries 在 qu一个rter of time 它 previously 抓住。他也能 写一个nd record entire 音乐 scores。如果不是 加特 的 consistent interruptions，他永远不会  离开他的 他一个d。麦考伊不在那里看到他的 大脑 如何 well 拿植入物，因为他不得不 返回E一个rth。
 
 "塔马斯，当我们 添加升级 到你的 植入物，你告诉我你会 练习 我 提供 给你的 生物和神经反馈程序，"加特 说。
 
@@ -362,9 +362,9 @@
 
 "你有没有 注意 我们 communic一个ting 如何 不同 比如说和麦考伊，或娜塔莉亚？"加特 问。
 
-"没有 continuous fe了b一个ck，"塔马斯 观察到。"像斯波克。这是因为你们是 外星人 我们 分享 这个游戏。"
+"没有 continuous 反馈，"塔马斯 观察到。"像斯波克。这是因为你们是 外星人 我们 分享 这个游戏。"
 
-"不，re作为on 他们没有 continuous fe了b一个ck，"加特 解释，"如你 put it，是因为他们不是 心灵感应者。我没有 允许 你 建立 永久 心灵感应纽带 和我，所以你也不会 得it 和我。"
+"不，re作为on 他们没有 continuous 反馈，"加特 解释，"如你 put it，是因为他们不是 心灵感应者。我没有 允许 你 建立 永久 心灵感应纽带 和我，所以你也不会 得it 和我。"
 
 "我不 理解，"塔马斯说。
 

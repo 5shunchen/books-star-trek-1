@@ -1,1 +1,4 @@
-Nothing should be ignored since only Python source files (.py) were added without any build artifacts, dependencies, or temporary files.
+```
+# Backup files
+*.backup
+```

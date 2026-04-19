@@ -272,11 +272,11 @@
 
 "我想我们来对地方了，"麦考伊说。
 
-"绝对。他似乎 经历了一些创伤，"加特 继续说，"我猜他 目睹 他父母的 死亡，那是 暴力？但最 有趣的 精神异常 涉及 so会合hing 产前的，我不 理解。有一个 明确事件 影响了 brain 的 物理结构。"
+"绝对。他似乎 经历了一些创伤，"加特 继续说，"我猜他 目睹 他父母的 死亡，那是 暴力？但最 有趣的 精神异常 涉及 so会合hing 产前的，我不 理解。有一个 明确事件 影响了 大脑 的 物理结构。"
 
-"他有更 developed neural pathways 比他这个年龄的人可能有的，"麦考伊说，"但我在他的 brain scans 中没有看到任何 suggest ab正常i纽带。"
+"他有更 发达的神经通路 比他这个年龄的人可能有的，"麦考伊说，"但我在他的 大脑 扫描s 中没有看到任何 suggest ab正常i纽带。"
 
-"这不是 ab正常ity，它不会显示在 scan 上，"加特 说，"我能看到它是因为我能 感能量如何 moves though 他的大脑。我从来没有在一个 socially functional 的人类中 感到这个。"
+"这不是 ab正常ity，它不会显示在 扫描 上，"加特 说，"我能看到它是因为我能 感觉能量如何穿过 他的大脑。我从来没有在一个 社交功能 的人类中 感到这个。"
 
 "你是什么意思？"麦考伊说。
 
@@ -284,7 +284,7 @@
 
 "是的，"麦考伊说，回忆道。每个见过 Medusan 的人类都 完全且不可逆转地发疯。"我见过 科利奥斯 大使，很久以前，他由米兰达·琼斯医生陪同。她是第一位与 Medusan 建立 成功的 心灵感应纽带的心理学家。她由于 失明 避免了 发疯。"
 
-"我读过她的一些作品。无论如何，我 尝试ed 建议ing 有过这种 encounter 的人类，试图 cure 他们的 发疯，"加特 说，"那就是当我 watch 能量 flow  通过塔马斯的 思想时我得到的 impression。"
+"我读过她的一些作品。无论如何，我 尝试ed 建议ing 有过这种 encounter 的人类，试图 治愈 他们的 发疯，"加特 说，"那就是当我 观察 能量流动  通过塔马斯的 思想时我得到的 impression。"
 
 "他没有 insane，"麦考伊说多于问。
 
@@ -308,17 +308,17 @@
 
 "我想，"麦考伊说，"如果它不会 interrupt 塔的 progress。"
 
-"他已经 halfway cured，"加特 promise。
+"他已经 halfway 治愈d，"加特 promise。
 
 ---
 
 # 第十章 植入
 
-塔马斯不应该意识到他们放在他头上的植入物，但他 adamant 他能感觉 它在哪里的 pressure。他不在乎它是"真实"感觉还是对某物 inserted 他头部的 psychosomatic response。Real 或 imagined，他 felt so会合hing。起初，他 refused 做程序，但当他们试图解释 他它如何 beneficial 对他，他开始 warming 到 idea。据称，它还没有 altered 他的任何 neurotransmitter levels，但只 monito戒指 他并给医生一个他的 brain activity map，chemical 和 electrical。他 watched monitor fascinated 由 lights explosions 和 dancing web of electricity 像 lightning 一样 spider webbed 通过他的大脑。Neural transmitters 被 assigned colors，它们 ballooned 和 flowed 通过大脑 in amazing patterns，像 spherical 灼烧works explosions 触发 furt 她explosions waves，fluidic colors mixing。
+塔马斯不应该意识到他们放在他头上的植入物，但他 adamant 他能感觉 它在哪里的 pressure。他不在乎它是"真实"感觉还是对某物 inserted 他头部的 psychosomatic response。Real 或 imagined，他 felt so会合hing。起初，他 refused 做程序，但当他们试图解释 他它如何 beneficial 对他，他开始 warming 到 idea。据称，它还没有 altered 他的任何 neurotransmitter levels，但只 monito戒指 他并给医生一个他的 大脑 activity map，chemical 和 electrical。他 观察ed monitor fascinated 由 lights explosions 和 dancing web of electricity 像 lightning 一样 spider webbed 通过他的大脑。Neural transmitters 被 assigned colors，它们 ballooned 和 flowed 通过大脑 in amazing patterns，像 spherical 灼烧works explosions 触发 furt 她explosions waves，fluidic colors mixing。
 
 "这会让我 正常 吗？"他问。
 
-"你是 正常 的，"加特 保证他，也 fascinated 由 computer generated representation of Tam's brain at work。
+"你是 正常 的，"加特 保证他，也 fascinated 由 computer generated representation of Tam's 大脑 at work。
 
 "不，我不是 正常 的，"塔马斯说，raising volume 当他 spelled out"正常"用莫尔斯电码。
 
@@ -348,7 +348,7 @@
 
 起初麦考伊 犹豫，说 诸如之类的话，"如果上帝 meant 我们 wired to 计算机，他就会用硅制造我们。"但最终，麦考伊 同意了 某些 upgrades。他 认为 它会 促进交流 直到塔马斯 学会说话。
 
-塔马斯花了几天前才有 full control 过他植入物中的"Extras"，但他一 得hang of it，他就能 访问 他的 email 甚至不用 得up 从他的床。他也能 surf IS-net 在他 head 的 comfort 中，accessing all sorts of information，话语 要么 翻译 directly into audio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 everything，无论它是 audio，visual，olfactory 或 tactile。最重要的是，他的 writing speed incr减轻 到 想法speed。他现在 able knock out whole stories 在 quarter of time 它 previously 抓住。他也能 写and record entire musical scores。如果不是 加特 的 consistent interruptions，他永远不会  离开他的 head。麦考伊不在那里看到他的 brain 如何 well 拿植入物，因为他不得不 返回Earth。
+塔马斯花了几天前才有 full control 过他植入物中的"Extras"，但他一 得hang of it，他就能 访问 他的 email 甚至不用 得up 从他的床。他也能 surf IS-net 在他 head 的 comfort 中，accessing all sorts of information，话语 要么 翻译 directly into audio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 everything，无论它是 audio，visual，olfactory 或 tactile。最重要的是，他的 writing speed incr减轻 到 想法speed。他现在 able knock out whole stories 在 quarter of time 它 previously 抓住。他也能 写and record entire musical scores。如果不是 加特 的 consistent interruptions，他永远不会  离开他的 head。麦考伊不在那里看到他的 大脑 如何 well 拿植入物，因为他不得不 返回Earth。
 
 "塔马斯，当我们 添加升级 到你的 植入物，你告诉我你会 练习 我 提供 给你的 生物和神经反馈程序，"加特 说。
 

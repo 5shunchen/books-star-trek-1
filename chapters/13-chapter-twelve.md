@@ -468,7 +468,7 @@ Clooney 夫人出现了，黑白。"你准备好了吗？"她问他。
 
 "医疗紧急情况，"塔马斯宣布。"我们需要一个医疗队到 星际交通管制 控制。"
 
-塔马斯将瓦肯人 lay out 在地板上，检查 pulse 之前 lifting cushion 出椅子并 propping 瓦肯人的脚 up。梅琳达 站着，想要帮助，但  不情愿离开她的站。楼层主管 T'San responded，他做的第一件事是 double assign 梅琳达。她现在 cove戒指 她的部分，以及她后面的站。她 arranged 她的屏幕 display 来自两个站的数据。T'San 触摸他的 earpiece。"医务人员正在路上，"T'San 说。当然，塔马斯听到了同样的回复，即使他正在向医疗 dispatch operator 描述症状。他降低他的头到瓦肯人的嘴 倾听空气 flow 与他的左耳，并 watch 瓦肯人的 胸膛 rise。没有。塔马斯给了瓦肯人两口气，使用 CPR techniques，并注意到 lungs 确实在每次 breath 时 inflate。T'San cleared 该区域的椅子，以便给 approaching 医护人员al team 空间工作。
+塔马斯将瓦肯人 lay out 在地板上，检查 pulse 之前 lifting cushion 出椅子并 propping 瓦肯人的脚 up。梅琳达 站着，想要帮助，但  不情愿离开她的站。楼层主管 T'San responded，他做的第一件事是 double assign 梅琳达。她现在 cove戒指 她的部分，以及她后面的站。她 arranged 她的屏幕 display 来自两个站的数据。T'San 触摸他的 earpiece。"医务人员正在路上，"T'San 说。当然，塔马斯听到了同样的回复，即使他正在向医疗 dispatch operator 描述症状。他降低他的头到瓦肯人的嘴 倾听空气 flow 与他的左耳，并 观察 瓦肯人的 胸膛 rise。没有。塔马斯给了瓦肯人两口气，使用 CPR techniques，并注意到 lungs 确实在每次 breath 时 inflate。T'San cleared 该区域的椅子，以便给 approaching 医护人员al team 空间工作。
 
 "他仍然有 pulse，但他没有呼吸，"塔马斯说。医护人员 接管，放置一个 neural regulator，一个小的 circular device，在额头。然后他放置一个 mask，适合嘴和鼻子，拉ing strap 绕瓦肯人的脸。第二个 医护人员 进行 三录仪 readings。
 

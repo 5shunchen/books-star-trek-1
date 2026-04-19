@@ -552,6 +552,6 @@
 
 "把他 beam 出来，"胡安 要求道。
 
-"无畏号无法实现传送器锁定，"斯波克解释，"他们 scan 了他的太空舱， suggest 这是 hull integrity field 不正确安装的结果。"
+"无畏号无法实现传送器锁定，"斯波克解释，"他们 扫描 了他的太空舱， suggest 这是 hull integrity field 不正确安装的结果。"
 
 "该死的，斯波克，有了所有这些电脑小工具，你就不能从这里关闭 hull integrity field 吗？"麦考伊说。

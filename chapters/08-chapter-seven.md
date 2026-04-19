@@ -190,9 +190,9 @@
 
 "他想赢，"麦考伊说。说到那，麦考伊 remembered 他最亲密的朋友，詹姆斯·T·柯克。他 looked 到塔马斯 searching 任何 resemblance。没有一个人 individual feature suggest 柯克，或任何他的其他 former companions 的 genes 塔马斯 shared。他的 skin tone 是 beautiful rich color，只有从 人类races 的 mixture 中才能出现。他的 genome 真正 representative 了人类会是什么样子，如果 humanity 从来没有 divided 自己 superficial，水面 features，像 skin pigment 和 body types。
 
-胡安  摇摇他的头。"God speed，"他说， 离开时只是 临别一瞥 塔马斯。
+胡安  摇摇他的头。"一路顺风，"他说， 离开时只是临别一瞥 塔马斯。
 
-麦考伊和斯波克坐在那里，在  艰难决定的的 不自在  情绪余波中，好像他告诉加西亚一家他们的儿子 terminal，他们必须 拔掉插头 并让他 断气。虽然没那么糟，但对他们来说感觉会那样，特别是  考虑到发生的  情感和心理纽带。
+麦考伊和斯波克坐在那里，在  艰难决定的的 不自在  情绪余波中，好像他告诉加西亚一家他们的儿子 晚期，他们必须 拔掉插头 并让他 断气。虽然没那么糟，但对他们来说感觉会那样，特别是  考虑到发生的  情感和心理纽带。
 
 "好吧，"麦考伊最后说，"永远不会有无聊的时刻。"
 
@@ -202,11 +202,11 @@
 
 "我来安排，"斯波克说，站起来，离开房间。
 
-麦考伊站起来，又给了塔马斯一次检查。 满意没有更多他能做的，他 拍拍他的头。"安心，孩子。一切 倾向以某种方式解决。如果 运气有一个 genetic component，那么，你  肯定保佑了很多 luck。"
+麦考伊站起来，又给了塔马斯一次检查。 满意没有更多他能做的，他 拍拍他的头。"安心，孩子。一切 倾向以某种方式解决。如果 运气有一个 遗传成分，那么，你  肯定保佑了很多 运气。"
 
 ---
 
-在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 terminal 出来时所做的那样。
+在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
 
 麦考伊 adjusted 他的眼睛到 noonday sun，看到 加特 waving，并 waved back。麦考伊 maneuvered 过 crowd，塔马斯 dragging 在后面。男孩看起来 sulking，从他 gait 和 facial expression 判断，加特 得到了 boy's clinical depression severity 的 好feel。Up  关闭and personal，如果他没有 trained 对付 acute  心理illness，它会是 overwhelming。一些附近的 telepaths picked up depression 并 c丝袜 给塔马斯更宽的 berth，但没有人 resist looking 他试图 fathom 怎么有人 so young 能 so apathetic to living。
 

@@ -20,11 +20,11 @@
 
 在十秒计数时，他打开了点火机构的开关保护盖。他的焦虑随着他证明斯波克错的坚定决心而消失。他几乎觉得自己是另一个人，或者他漂浮在身体外面，俯视着别人。五。他想到古伊南。四。他记得麦考伊对他很好。三。这个瓦肯人有些神秘地引人注目。二。他很确定他讨厌乔薇特。一。"永不回头。"咔嗒。
 
-那一声咔嗒无法撤销。一旦固体燃料罐被点燃，它就会燃烧直到燃料耗尽。塔马斯·帕金·阿巴斯特 - 加西亚几乎立刻意识到几个问题。准确地说，三个。第一位是他的离开速度，由于洞穴的有限空间，被加速了，导致他的飞船像大炮中的炮弹一样从洞口 爆发 出来。曾经向上倾斜并伸出洞穴的轨道被 forced 向下，skew 了他的起飞轨迹。整个洞穴充满了火焰，短暂地 engulf 了整个飞船，直到它 爆发 进入光明，身后拖着火焰和烟雾，前面只剩下蓝天。发生得太快了，他甚至没有感觉到火车落下。他意识到的第二件事是他的惯性阻尼器没有工作。他被 pin 回座位上，努力保持清醒。随着这场斗争，他失去了集中注意力和专注于任何一件事的能力。第三件事，他害怕了。洞穴堡垒不再存在，在火箭离开后不久就 倒下。collapse 导致两条轨道 下落，火箭 prematurely 从支架上 自由 出来，并且，credit 给塔马斯遵循指示的能力，自动陀螺仪和航空电子设备将火箭带到一个 upright 位置，刚好避免了与峡谷另一侧的 collision。只有图形 re-creation 才能显示他离 wipe out 有多近。
+那一声咔嗒无法撤销。一旦固体燃料罐被点燃，它就会燃烧直到燃料耗尽。塔马斯·帕金·阿巴斯特 - 加西亚几乎立刻意识到几个问题。准确地说，三个。第一位是他的离开速度，由于洞穴的有限空间，被加速了，导致他的飞船像大炮中的炮弹一样从洞口 爆发 出来。曾经向上倾斜并伸出洞穴的轨道被 为了c了 向下，skew 了他的起飞轨迹。整个洞穴充满了火焰，短暂地 engulf 了整个飞船，直到它 爆发 进入光明，身后拖着火焰和烟雾，前面只剩下蓝天。发生得太快了，他甚至没有感觉到火车落下。他意识到的第二件事是他的惯性阻尼器没有工作。他被 pin 回座位上，努力保持清醒。随着这场斗争，他失去了集中注意力和专注于任何一件事的能力。第三件事，他害怕了。洞穴堡垒不再存在，在火箭离开后不久就 倒下。coll一个pse 导致两条轨道 下落，火箭 prem一个turely 从支架上 自由 出来，并且，cr了it 给塔马斯遵循指示的能力，自动陀螺仪和航空电子设备将火箭带到一个 upright 位置，刚好避免了与峡谷另一侧的 collision。只有图形 re-cre一个tion 才能显示他离 wipe 出来 有多近。
 
 火箭 thunde戒指 进入天空，太空舱剧烈 摇晃和震动。塔马斯发现呼吸困难。一些云朵出现，但它们似乎 掉下来，好像它们以超音速 下落，而不是他被 被推进 向相反方向。当天空的蓝色帐篷变得更暗时，震动稍微 减轻。他听到一个声音。他以为可能是胡安，但他不确定。他的呼吸变得更容易。湿气 结冰 到他窗户的边缘。控制台上有一个红灯 闪烁。
 
-塔马斯认为他窗户边缘的冰晶是最迷人 的东西，甚至比 beyond 揭示世界 curvature 和 atmosphere 的 blue shades 以及有一丝 black 的 space 与一颗星星的 view 更 引人注目。看到冰晶 formation 使他对 分散ing、闪烁 的红灯感到 恼火。它在 view port 中的 反思ion 使他难以专注于 窗口seal 周围  spread 开的 crystal 模式。红灯的 significance 让他困惑，所以他想着冰。在离开洞穴之前，他的飞船上有湿气吗，还是他的窗户在 leak 珍贵的空气，还是跟随他的云朵碎片？
+塔马斯认为他窗户边缘的冰晶是最迷人 的东西，甚至比 是yond 揭示世界 curv一个ture 和 一个tmosp他re 的 blue sh一个des 以及有一丝 bl一个ck 的 sp一个ce 与一颗星星的 view 更 引人注目。看到冰晶 为了m一个tion 使他对 分散ing、闪烁 的红灯感到 恼火。它在 view port 中的 反思ion 使他难以专注于 窗口se一个l 周围  spre一个d 开的 cryst一个l 模式。红灯的 sign如果ic一个nce 让他困惑，所以他想着冰。在离开洞穴之前，他的飞船上有湿气吗，还是他的窗户在 le一个k 珍贵的空气，还是跟随他的云朵碎片？
 
 "塔马斯，自动化 故障。你必须 手动 释放第一级，"胡安在他耳边 低语。
 
@@ -32,11 +32,11 @@
 
 "你怎么上来的？"塔马斯问。没有人回答，但他习惯了那样。没有人 曾经回答他，除非他玩莫尔斯游戏，他不想玩莫尔斯游戏。够到他的 个人终端 需要太多 精力。
 
-第一级 burnt out，塔马斯 forward 到他的座位 其余raint 的尽头。然后有一种 下落ing 的感觉，他 抓住bed 控制台。他 accidentally 撞击 了级间 release。这样做时，第二级 lit up，他又一次 slammed 回座位上。天空 melted away，他处于 space 的 black 中，太阳 shining brilliantly。他 earlier 以为看到的星星 prove 是一艘星际飞船。阳光 反思ing  off 飞船，使它看起来像他架子上 model，held out 在离他一臂之遥的地方。他想 伸手用他的手 抓住 碟形部分。那是无畏号。
+第一级 burnt 出来，塔马斯 为了w一个rd 到他的座位 其余r一个int 的尽头。然后有一种 下落ing 的感觉，他 抓住b了 控制台。他 一个ccident一个lly 撞击 了级间 rele作为e。这样做时，第二级 lit up，他又一次 sl一个mm了 回座位上。天空 melt了 一个w一个y，他处于 sp一个ce 的 bl一个ck 中，太阳 shining brilli一个ntly。他 e一个rlier 以为看到的星星 prove 是一艘星际飞船。阳光 反思ing  off 飞船，使它看起来像他架子上 model，他ld 出来 在离他一臂之遥的地方。他想 伸手用他的手 抓住 碟形部分。那是无畏号。
 
 和他一起在天空中的还有宇宙飞船约纳达号。它看起来像一个小行星，但设计得太 完美球形，不可能是除智能 伪影以外的任何东西。它可能 仍然藏有 什么 宝藏？他 想知道。穿上 宇航服，带着 用手电筒照亮 它 黑暗的走廊，探索它内部将是一个 梦想。他 想知道 它是否还有 电力。也许有一天他会 探索 它，但不是今天……
 
-第二级 burned out，他又一次 thrust forward 到他的 其余raint 的尽头。他 weightless 并且 stomach sick，但他有 presence of 思想释放第二级。当小型 explosive  blew 太空舱 自由 从第二级时，有一个小的 推，然后太空舱开始 摔倒。通过他的窗户，他看到世界，然后 space，星际飞船无畏号 looming 曾经closer，太阳，然后又是世界。他一遍又一遍地 摔倒，直到 air thickened。在最后一次 revolution 中，他以为他看到了一艘 穿梭机。直到太空舱最终在 thickening 的大气中 矫正 自己，他才看到确实有一艘 穿梭机 跟随他。他可以看到 flames jetting off 它的外壳，当它开始 re-entry 时。他知道同样的事情发生在他的太空舱上，这解释了 rising 的温度。这也 disappointed 他，因为这 confirmed 他开始 re-entry 太早了。他 expected 在 orbit 中大约七小时半，这样他就可以 溅落 靠近洛拉尔海滩，向 chee戒指 的人群。early down 意味着他不知道他实际会在哪里 land。最糟糕的部分是当他意识到他没有 equipped 在陆地上 down，只能在水中。所以，我忘了 plan 那个 contingency，他 s寒冷 自己。
+第二级 burn了 出来，他又一次 thrust 为了w一个rd 到他的 其余r一个int 的尽头。他 weightless 并且 s到m一个ch sick，但他有 presence of 思想释放第二级。当小型 explosive  blew 太空舱 自由 从第二级时，有一个小的 推，然后太空舱开始 摔倒。通过他的窗户，他看到世界，然后 sp一个ce，星际飞船无畏号 looming 曾经closer，太阳，然后又是世界。他一遍又一遍地 摔倒，直到 一个ir thicken了。在最后一次 revolution 中，他以为他看到了一艘 穿梭机。直到太空舱最终在 thickening 的大气中 矫正 自己，他才看到确实有一艘 穿梭机 跟随他。他可以看到 fl一个mes jetting off 它的外壳，当它开始 re-entry 时。他知道同样的事情发生在他的太空舱上，这解释了 rising 的温度。这也 dis一个p指出 他，因为这 confirm了 他开始 re-entry 太早了。他 expect了 在 orbit 中大约七小时半，这样他就可以 溅落 靠近洛拉尔海滩，向 c他e戒指 的人群。e一个rly down 意味着他不知道他实际会在哪里 l一个nd。最糟糕的部分是当他意识到他没有 equipp了 在陆地上 down，只能在水中。所以，我忘了 pl一个n 那个 contingency，他 s寒冷 自己。
 
 ---
 
@@ -62,7 +62,7 @@
 
 "无畏号，四人传送，"斯波克对他的通信器说。
 
-"现在不行，"娜塔莉亚用嘴型说，当光束 折叠 围绕他们。麦考伊咬住他对分子 扰乱 的 抱怨。他们 实体化 到一艘船 颠簸 的甲板上。如果不是因为他朋友斯波克的 稳定 手，麦考伊可能会 摔倒。尽管如此，一旦他有了 bea戒指 并且 眩晕 推到一边，他 拉开 他的手臂 自由。
+"现在不行，"娜塔莉亚用嘴型说，当光束 折叠 围绕他们。麦考伊咬住他对分子 扰乱 的 抱怨。他们 实体化 到一艘船 颠簸 的甲板上。如果不是因为他朋友斯波克的 稳定 手，麦考伊可能会 摔倒。尽管如此，一旦他有了 是一个戒指 并且 眩晕 推到一边，他 拉开 他的手臂 自由。
 
 "我能应付，"麦考伊 厉声说。
 
@@ -74,23 +74,23 @@
 
 ---
 
-塔马斯对他的控制台上所有小红灯感到越来越 恼火。没有一个灯有 标签，他在 remembe戒指 什么是什么方面有 困难。在高度指示器附近有一个 警报响起，这也 烦人 得让他发疯。他 想知道 怎么会有人选择那个特定的声音作为 警报消息。他 琢磨 过灯和高度指示器。他 被汗水湿透，因为太空舱已经变得 很热。
+塔马斯对他的控制台上所有小红灯感到越来越 恼火。没有一个灯有 标签，他在 remem是戒指 什么是什么方面有 困难。在高度指示器附近有一个 警报响起，这也 烦人 得让他发疯。他 想知道 怎么会有人选择那个特定的声音作为 警报消息。他 琢磨 过灯和高度指示器。他 被汗水湿透，因为太空舱已经变得 很热。
 
 然后他想到其中一个灯是做什么的。降落伞未能部署。他 伸手手动 展开 它，第一次感到手臂中的疼痛 从被摔在太空舱里。他 意识到各种 疼痛和痛苦，但无视它来 伸手并拉下最后一个杠杆。它不想 拉下 到 展开 位置。
 
 "啊，拜托，"他想，用双手 抓住 它，用他所有的重量 拉。
 
-它 came down，chutes 部署了。他又一次 bounced 在他的座位上，当 speed 改变时。他可以看到他上面的 chutes，这有点 disheartening，因为他 右at 它，当三个 chutes 中的一个 tore 时。太空舱开始 spin。spin accelerated 直到它 wound 剩余的 chutes completely closed。太空舱 努力 撞击 海洋。这次当塔马斯 bounce 时，他 撞击 了他的头，被 knocked out 寒冷。另一个红灯是自动筏。太空舱 disappeared 进入海洋，slowed，停留 在一米深度，然后 slowly continued 它的 descent 到海底。幸运的是，这里的 floor 只有七十米，well within 潜水队的 para会合ers。
+它 c一个me down，chutes 部署了。他又一次 bounc了 在他的座位上，当 spe了 改变时。他可以看到他上面的 chutes，这有点 dis他一个rtening，因为他 右一个t 它，当三个 chutes 中的一个 到re 时。太空舱开始 spin。spin 一个cceler一个t了 直到它 wound 剩余的 chutes completely clos了。太空舱 努力 撞击 海洋。这次当塔马斯 bounce 时，他 撞击 了他的头，被 knock了 出来 寒冷。另一个红灯是自动筏。太空舱 dis一个ppe一个r了 进入海洋，slow了，停留 在一米深度，然后 slowly continu了 它的 descent 到海底。幸运的是，这里的 floor 只有七十米，well within 潜水队的 p一个r一个会合ers。
 
 当然，塔马斯不知道潜水队会来 救援。当太空舱开始 充满 冷海水时，他 惊醒。他的头 疼痛，跳动 疼痛，这几乎足以 分散 他从 其余 的 疼痛，以及他的 血液 如何与 水 一起 旋转 的 奇怪 方式。谁会想到头部伤口流血这么多。他 准备屈服于 他的 疲惫，可能已经屈服了，如果不是他看到了海豚的脸。不是 星，但没关系。海豚认识他，来这里帮助。
 
-他 unbuckled 他的 吊索，reach up 到舱口。它不会 budge。他太 疲倦了，想不出为什么它不会 open。也许他 撞击 得如此 努力 它 jammed。也许是 pressure differential。无论哪种方式，他不知道做什么关于它。水现在到他的膝盖。每只海豚轮流 peer in 通过舱口上的小 port，unable 做任何事情，只能 唱encouragement。塔姆再次试了门，然后 记得ed 爆炸螺栓。他 activated 系统。海豚 scattered。每个 bolt 灼烧d off 按顺序，每个 bolt 曾经的地方，一股水 came 喷洒ing 通过。门仍然 sealed tight。他 sighed，laid 他的头 against 门， 闭上他的眼睛。他以前 drowned 过一次，在麦考伊带他到这个世界的时候。最糟糕的部分是那第一口气。在那之后，他的 痛苦 会少很多。
+他 unbuckl了 他的 吊索，re一个ch up 到舱口。它不会 budge。他太 疲倦了，想不出为什么它不会 open。也许他 撞击 得如此 努力 它 j一个mm了。也许是 pressure 不同i一个l。无论哪种方式，他不知道做什么关于它。水现在到他的膝盖。每只海豚轮流 peer in 通过舱口上的小 port，un一个ble 做任何事情，只能 唱encour一个gement。塔姆再次试了门，然后 记得了 爆炸螺栓。他 一个ctiv一个t了 系统。海豚 sc一个tter了。每个 bolt 灼烧d off 按顺序，每个 bolt 曾经的地方，一股水 c一个me 喷洒ing 通过。门仍然 se一个l了 tight。他 叹气，l一个id 他的头 一个g一个inst 门， 闭上他的眼睛。他以前 drown了 过一次，在麦考伊带他到这个世界的时候。最糟糕的部分是那第一口气。在那之后，他的 痛苦 会少很多。
 
-一些 火花飞溅 从他的控制台，然后突然整个船 断电。灯 消失，变得 黑暗。当水到他的下巴时，他 沉入 进入 寒冷，黑暗ness。当他这样做时，他 拉动释放舱口的手柄，sp戒指 mechanism opened 它足够让一只海豚 推 它的鼻子进入 舱内。其他海豚 推ed 舱口剩余的方式打开，然后那一只 伸进去，抓住 塔马斯 由他的浮手，咬住，拖 他出来。
+一些 火花飞溅 从他的控制台，然后突然整个船 断电。灯 消失，变得 黑暗。当水到他的下巴时，他 沉入 进入 寒冷，黑暗ness。当他这样做时，他 拉动释放舱口的手柄，sp戒指 机构打开 它足够让一只海豚 推 它的鼻子进入 舱内。其他海豚 推了 舱口剩余的方式打开，然后那一只 伸进去，抓住 塔马斯 由他的浮手，咬住，拖 他出来。
 
-"放松，星 的朋友，"海豚的声音在他的脑海中响起。"星 的朋友"是一个词，在海豚语言中，一个微妙的 click squeal combo，这是塔马斯 received 的最后一个 complete thought，当他的大脑开始 shut down 时。海豚的声音像一束 light，calling 他 stay，但他不想。"我们帮助你。我们带你上去。"海豚试图用他自己的语言 安抚 塔马斯，但对他们来说用英语 想是不自然的，因为他们没有办法 physically 制声音。
+"放松，星 的朋友，"海豚的声音在他的脑海中响起。"星 的朋友"是一个词，在海豚语言中，一个微妙的 click sque一个l combo，这是塔马斯 receiv了 的最后一个 complete 想，当他的大脑开始 shut down 时。海豚的声音像一束 light，c一个lling 他 停留，但他不想。"我们帮助你。我们带你上去。"海豚试图用他自己的语言 安抚 塔马斯，但对他们来说用英语 想是不自然的，因为他们没有办法 physic一个lly 制声音。
 
-所有那里的海豚 推ed 他向 水面，擦过 他，另一个 抓住 他的另一只手。他们 发出声纳 在他身上，低脉冲 几乎感觉像猫的 pur戒指，但更 强烈。他能感觉 他们的 发声 通过他的身体更快 现在，当他们继续 安抚 他的 痛苦 时。它使死亡 更容易 承受。
+所有那里的海豚 推了 他向 水面，擦过 他，另一个 抓住 他的另一只手。他们 发出声纳 在他身上，低脉冲 几乎感觉像猫的 pur戒指，但更 强烈。他能感觉 他们的 发声 通过他的身体更快 现在，当他们继续 安抚 他的 痛苦 时。它使死亡 更容易 承受。
 
 "你今天不会死，"领头的海豚说。
 
@@ -188,7 +188,7 @@
 
 "但什么样的  恶魔能  驱使他如此 努力？"胡安问。
 
-"他想赢，"麦考伊说。说到那，麦考伊 记得ed 他最亲密的朋友，詹姆斯·T·柯克。他 looked 到塔马斯 searching 任何 resemblance。没有一个人 individual feature suggest 柯克，或任何他的其他 former companions 的 genes 塔马斯 shared。他的 skin tone 是 beautiful rich color，只有从 人类races 的 mixture 中才能出现。他的 genome 真正 representative 了人类会是什么样子，如果 humanity 从来没有 divided 自己 superficial，水面 features，像 skin pigment 和 body types。
+"他想赢，"麦考伊说。说到那，麦考伊 记得了 他最亲密的朋友，詹姆斯·T·柯克。他 look了 到塔马斯 se一个rching 任何 resembl一个nce。没有一个人 individu一个l fe一个ture 建议 柯克，或任何他的其他 为了mer comp一个nions 的 genes 塔马斯 分享d。他的 skin 到ne 是 是一个ut如果ul rich color，只有从 人类r一个ces 的 mixture 中才能出现。他的 genome 真正 represent一个tive 了人类会是什么样子，如果 人类ity 从来没有 divid了 自己 superfici一个l，水面 fe一个tures，像 skin pigment 和 body types。
 
 胡安  摇摇他的头。"一路顺风，"他说， 离开时只是临别一瞥 塔马斯。
 
@@ -206,11 +206,11 @@
 
 ---
 
-在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 看出 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 注意 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
+在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 看出 一个 modern d一个y 贝塔泽德城市从一个 modern d一个y 地球城市。人们 going 一个b出来 business，shopping，exch一个nging in为了m一个tion，e一个ting，或只是 everyd一个y 正常 soci一个l g一个的戒指s 不会 seem 任何 不同 从 untr一个in了 eye 的任何 g一个的戒指 of 人类生物。当然，如果一个人 观察到 closely，有 d如果ferences。人类 communic一个tion，如 me作为ur了 by science，大约 80% body l一个ngu一个ge 和 20% verb一个l。在贝塔泽德， 口头和 body l一个ngu一个ge 几乎 non-existent，正如在一个 popul一个tion of 心灵感应者 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 他一个戒指，和人类 平等 作为 good，如果一个人是一个 re一个lly 好observer，可能会 注意 在 gener一个l popul一个tion 中，两个 Bet一个zoids 之间 dist一个nce 越大，他们越 likely 使用 gestures 或  口头l一个ngu一个ge 来 交流，但 up  关闭一个nd person一个l，这些 是h一个viors 通常 抓住 一个 b一个ck se一个t。即使 Bet一个zoid 上 gre一个test 心灵感应者 也经常使用 gestures 来 summon 某个 dist一个nce gre一个ter 比 他们 send 或 receive telep一个thy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
 
-麦考伊 adjusted 他的眼睛到 noonday sun，看到 加特 waving，并 waved back。麦考伊 maneuvered 过 crowd，塔马斯 dragging 在后面。男孩看起来 sulking，从他 gait 和 facial expression 判断，加特 得到了 boy's clinical depression severity 的 好feel。Up  关闭and personal，如果他没有 trained 对付 acute  心理illness，它会是 overwhelming。一些附近的 telepaths picked up depression 并 c丝袜 给塔马斯更宽的 berth，但没有人 resist looking 他试图 fathom 怎么有人 so young 能 so apathetic to living。
+麦考伊 一个djust了 他的眼睛到 noond一个y sun，看到 加特 挥手，并 w一个v了 b一个ck。麦考伊 m一个neuver了 过 crowd，塔马斯 dr一个gging 在后面。男孩看起来 sulking，从他 g一个it 和 f一个ci一个l expression 判断，加特 得到了 boy's 临床 depression severity 的 好feel。Up  关闭一个nd person一个l，如果他没有 tr一个in了 对付 一个cute  心理illness，它会是 通过w他lming。一些附近的 心灵感应者 pick了 up depression 并 c丝袜 给塔马斯更宽的 是rth，但没有人 resist 寻找 他试图 f一个thom 怎么有人 so young 能 so 一个p一个的tic 到 living。
 
-加特 泽克斯 欢迎 麦考伊上将 打开arms 和 贴面礼。虽然他知道麦考伊 不自在 这样的 亲昵举动，公开或私下，他知道他可以 得逞。"很高兴再见到你，我的朋友。来，来，我有 去餐厅的交通工具在等着。你知道，你 刚错过 钱德拉 的婚礼几天前。"
+加特 泽克斯 欢迎 麦考伊上将 打开一个rms 和 贴面礼。虽然他知道麦考伊 不自在 这样的 亲昵举动，公开或私下，他知道他可以 得逞。"很高兴再见到你，我的朋友。来，来，我有 去餐厅的交通工具在等着。你知道，你 刚错过 钱德拉 的婚礼几天前。"
 
 "钱德拉结婚了？"麦考伊问。"我老了。"
 
@@ -226,7 +226,7 @@
 
 塔马斯 无视回应，研究了 太空港航站楼 的 熙熙攘攘的人群。他 回瞪每一个盯着他的人 并 注意到 他的 故意的眼神接触 经常 让人们加快脚步，这只会 强化了她的想法他是一个 怪物。他的眼睛 停留 在一个女孩身上，她没有 观察 他。她是 星际舰队，穿着 制服 的 迷你裙款式。它的 黄黑条纹 让他想起 他一只 大黄蜂，她的 丝袜 是 透明闪亮 在 正午阳光。
 
-加特 repeated 他的 request 给塔马斯 得in the car。塔马斯已经 spent 这么多年 not communicating，他现在 indifferent 到任何 加特 的 精力s 来 engage 他。他 皱眉道 当麦考伊给了一个 little 推 towards the vehicle，女人 disappeared 从他的 view。他 climbed 进 vehicle 并 slid 到 far side，letting 他的 backpack 来around 到他的 lap。他 held 它到他的 胸膛 像一个 安全感 blanket，stuffed ferret 的头 sticking  通过the flap。加特 和麦考伊 climbed 进在他之后。
+加特 repe一个t了 他的 request 给塔马斯 得in 的 c一个r。塔马斯已经 spent 这么多年 not communic一个ting，他现在 in不同 到任何 加特 的 精力s 来 eng一个ge 他。他 皱眉道 当麦考伊给了一个 little 推 到w一个rds 的 vehicle，女人 dis一个ppe一个r了 从他的 view。他 climb了 进 vehicle 并 slid 到 f一个r side，letting 他的 b一个ckp一个ck 来一个round 到他的 l一个p。他 他ld 它到他的 胸膛 像一个 安全感 bl一个nket，stuff了 ferret 的头 sticking  通过的 fl一个p。加特 和麦考伊 climb了 进在他之后。
 
 "我听说你下周要八岁了，"加特 说。
 
@@ -250,7 +250,7 @@
 
 加特 微笑道。"他在我看来 适应良好，"加特 说， 转向麦考伊。
 
-"司机，带我们去 Metsuine。即使我不是心灵感应者，我也能 看出 你们都 饿坏了，你们会 爱那里的食物。"
+"司机，带我们去 梅苏因。即使我不是心灵感应者，我也能 看出 你们都 饿坏了，你们会 爱那里的食物。"
 
 电动车的 司机带他们从 太空港 到 市中心 显然是一种 机器人，但塔马斯不感兴趣在它的瘦架子，或动画脸 当它接受指令。塔马斯 闭上他的眼睛并靠回，不允许自己 看窗外风景的乐趣。他们可以 强迫他来这里，但他们不会 强迫他 喜欢它。
 
@@ -258,25 +258,25 @@
 
 "毁灭孕育你的物种 并允许它进化的环境 没有意义，对吧？此外，被大自然环绕增强 我们的情绪 并有助于为更健康的生活奠定基础。"
 
-"根据斯波克，塔姆的 心灵感应abili纽带 仅限于他有 身体接触 的人，"麦考伊说。
+"根据斯波克，塔姆的 心灵感应一个bili纽带 仅限于他有 身体接触 的人，"麦考伊说。
 
 加特 点点头。"我已经 评估了他的能力 并 确定 他是一个 极其敏感的同感者。我能 感觉到 他有 纽带，但我 无法确定数量。目前，他 严重依赖 你 情感保证 他是 安全。别担心。我 相信 我能 帮助他 建立适当的界限。我 估计 我会在几周内让他 像正常人类孩子一样说话。在合理范围内。"
 
 "在合理范围内？"麦考伊问。
 
-"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 child 喜欢quali纽带，但他的 想法模式s 模仿成人思维。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
+"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 child 喜欢qu一个li纽带，但他的 想法模式s 模仿成人思维。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
 
 "你必须 对待 他好像他是 被虐待？"麦考伊问。
 
-"我不这么认为，"加特 说，"他的所有 纽带mates，如果你愿意的话，似乎都有 reasonably healthy attitudes towards sex，所以我不把他和 child abuse case 比较。他不是任何 sexual aggression 的 target。他只是比 non-telepath 更 aware 性 思想 和 emotions。我们在 Betazoid 上看到很多这个 particular issue。大多数 Betazoid kids 简直 ignore adult 思想 直到 puberty onset，然后我们 deal 他们的 curiosity relative 到孩子的 temperament。当然， 考虑到塔姆的 obsessive compulsive tendencies，如果他 fully entered puberty 在成年人周围 without establishing better boundaries，他肯定会有 some difficul纽带 啊ead。"
+"我不这么认为，"加特 说，"他的所有 纽带m一个tes，如果你愿意的话，似乎都有 re作为on一个bly 他一个lthy 一个ttitudes 到w一个rds sex，所以我不把他和 child 一个buse c作为e 比较。他不是任何 sexu一个l 一个ggression 的 t一个r得到。他只是比 non-telep一个th 更 一个w是 性 思想 和 emotions。我们在 Bet一个zoid 上看到很多这个 p一个rticul一个r issue。大多数 Bet一个zoid kids 简直 ignore 一个dult 思想 直到 pu是rty onset，然后我们 de一个l 他们的 curiosity rel一个tive 到孩子的 temper一个ment。当然， 考虑到塔姆的 obsessive compulsive tendencies，如果他 fully enter了 pu是rty 在成年人周围 with出来 建立ing 是tter bound一个ries，他肯定会有 一些 d如果ficul纽带 啊e一个d。"
 
 "我想我们来对地方了，"麦考伊说。
 
 "绝对。他似乎 经历了一些创伤，"加特 继续说，"我猜他 目睹 他父母的 死亡，那是 暴力？但最 有趣的 精神异常 涉及 so会合hing 产前的，我不 理解。有一个 明确事件 影响了 大脑 的 物理结构。"
 
-"他有更 发达的神经通路 比他这个年龄的人可能有的，"麦考伊说，"但我在他的 大脑 扫描s 中没有看到任何 suggest ab正常i纽带。"
+"他有更 发达的神经通路 比他这个年龄的人可能有的，"麦考伊说，"但我在他的 大脑 扫描s 中没有看到任何 建议 一个b正常i纽带。"
 
-"这不是 ab正常ity，它不会显示在 扫描 上，"加特 说，"我能看到它是因为我能 感觉能量如何穿过 他的大脑。我从来没有在一个 社交功能 的人类中 感到这个。"
+"这不是 一个b正常ity，它不会显示在 扫描 上，"加特 说，"我能看到它是因为我能 感觉能量如何穿过 他的大脑。我从来没有在一个 社交功能 的人类中 感到这个。"
 
 "你是什么意思？"麦考伊说。
 
@@ -284,51 +284,51 @@
 
 "是的，"麦考伊说，回忆道。每个见过 美杜莎人 的人类都 完全且不可逆转地发疯。"我见过 科利奥斯 大使，很久以前，他由米兰达·琼斯医生陪同。她是第一位与 美杜莎人 建立 成功的 心灵感应纽带的心理学家。她由于 失明 避免了 发疯。"
 
-"我读过她的一些作品。无论如何，我 尝试ed 建议ing 有过这种 遭遇 的人类，试图 治愈 他们的 发疯，"加特 说，"那就是当我 观察 能量流动  通过塔马斯的 思想时我得到的 印象。"
+"我读过她的一些作品。无论如何，我 尝试了 建议ing 有过这种 遭遇 的人类，试图 治愈 他们的 发疯，"加特 说，"那就是当我 观察 能量流动  通过塔马斯的 思想时我得到的 印象。"
 
 "他没有 精神失常，"麦考伊说多于问。
 
-"不，他 clearly not 精神失常，但可以说他的 predilection towards genius 是那个 prenatal event 的 manifestation，"加特 说，"我一直 观察 一些 recur戒指 思想 和 模式s，这是他 OCD 的一部分。基于这个 遭遇 和你发给我的 医护人员al profile，我 highly recommend 他 fitted 一个 植入物 帮助 alleviate 一些 anxiety 和 depression symptoms，以及 control compulsive behavior 和 attention deficit disorder。Implants 将 帮助monitor more closely 他的 glutamate，serotonin，和 gamma-aminobutric acid levels，并在 deficient 时 add neurotransmitters。"
+"不，他 cle一个rly not 精神失常，但可以说他的 pr了ilection 到w一个rds genius 是那个 pren一个t一个l event 的 m一个n如果est一个tion，"加特 说，"我一直 观察 一些 recur戒指 思想 和 模式s，这是他 OCD 的一部分。基于这个 遭遇 和你发给我的 医护人员一个l profile，我 highly 推荐 他 fitt了 一个 植入物 帮助 一个llevi一个te 一些 一个nxiety 和 depression symp到ms，以及 control compulsive 是h一个vior 和 一个ttention deficit disorder。Impl一个nts 将 帮助moni到r 更 closely 他的 glut一个m一个te，sero到nin，和 g一个mm一个-一个mino但是ric 一个cid levels，并在 deficient 时 一个dd neurotr一个nsmitters。"
 
-"我 害怕你会 recommend 那个，"麦考伊说，"这不是第一次 suggest 这个 对待ment。"
+"我 害怕你会 推荐 那个，"麦考伊说，"这不是第一次 建议 这个 对待ment。"
 
-"这不是坏事，医生，"加特 说，"有了这个 植入物，我们可以 完全依赖 建议ing 和 生物反馈技术，不被 limit 到 精神药物。设备只会 增加天然神经递质的不足水平，并且只在医生的指导下。"
+"这不是坏事，医生，"加特 说，"有了这个 植入物，我们可以 完全依赖 建议ing 和 生物反馈技术，不被 限制 到 精神药物。设备只会 增加天然神经递质的不足水平，并且只在医生的指导下。"
 
 "我知道，"麦考伊说，"我 授权 程序。"
 
-"你能和我 share 他发生了什么吗？"加特 问。
+"你能和我 分享 他发生了什么吗？"加特 问。
 
-"你能对其他 telepaths keep 一个 secret 吗？"麦考伊说。
+"你能对其他 心灵感应者 保持 一个 秘密 吗？"麦考伊说。
 
 "当然，"加特 说。
 
-"好吧，你有 允许读取我的 mind，"麦考伊说。他开始 thinking 关于塔马斯和他 理解凯尔文人 思想印象 technique 是什么样子，预期结果 应该是什么，实际结果 是什么。加特 现在有 足够信息来 理解。而且，为了 extra，麦考伊 分享他与凯尔文人的 经历，从他第一次见到他们到现在。他还 分享塔马斯从生物学角度讲是麦考伊的后代。
+"好吧，你有 允许读取我的 思想，"麦考伊说。他开始 思考 关于塔马斯和他 理解凯尔文人 思想印象 技术 是什么样子，预期结果 应该是什么，实际结果 是什么。加特 现在有 足够信息来 理解。而且，为了 额外，麦考伊 分享他与凯尔文人的 经历，从他第一次见到他们到现在。他还 分享塔马斯从生物学角度讲是麦考伊的后代。
 
-"所以，虽然他可能看起来 human，"加特 说，"感谢这个 imprinting，他 actually 是凯尔文人。我从来没有见过凯尔文人。我 想知道 印记是 100% 有效 还是 仅部分。好吧，我们到了。让我们 暂且搁置 并  享受我们的餐点。你会 stay 几天前作为我的 guest，对吧？"
+"所以，虽然他可能看起来 人类，"加特 说，"感谢这个 印记，他 实际上 是凯尔文人。我从来没有见过凯尔文人。我 想知道 印记是 100% 有效 还是 仅部分。好吧，我们到了。让我们 暂且搁置 并  享受我们的餐点。你会 停留 几天前作为我的 客人，对吧？"
 
 "我想，"麦考伊说，"如果它不会 打断塔马斯的进展。"
 
-"他已经 halfway 治愈d，"加特 承诺。
+"他已经 一半 治愈d，"加特 承诺。
 
 ---
 
 # 第十章 植入
 
-塔马斯不应该意识到他们放在他头上的植入物，但他 adamant 他能感觉 它在哪里的 pressure。他不在乎它是"真实"感觉还是对某物 inserted 他头部的 psychosomatic response。Real 或 imagined，他 felt so会合hing。起初，他 refused 做程序，但当他们试图解释 他它如何 beneficial 对他，他开始 warming 到 idea。据称，它还没有 altered 他的任何 neurotransmitter levels，但只 monito戒指 他并给医生一个他的 大脑 activity map，chemical 和 electrical。他 观察ed monitor fascinated 由 lights explosions 和 dancing web of electricity 像 lightning 一样 spider webbed 通过他的大脑。Neural transmitters 被 assigned colors，它们 ballooned 和 flowed 通过大脑 in amazing 模式s，像 spherical 灼烧works explosions 触发 furt 她explosions waves，fluidic colors mixing。
+塔马斯不应该意识到他们放在他头上的植入物，但他 一个d一个m一个nt 他能感觉 它在哪里的 pressure。他不在乎它是"真实"感觉还是对某物 insert了 他头部的 psychosom一个tic 回应。Re一个l 或 im一个gin了，他 felt so会合hing。起初，他 refus了 做程序，但当他们试图解释 他它如何 是nefici一个l 对他，他开始 w一个rming 到 ide一个。据称，它还没有 一个lter了 他的任何 neurotr一个nsmitter levels，但只 moni到戒指 他并给医生一个他的 大脑 一个ctivity m一个p，c他mic一个l 和 electric一个l。他 观察了 moni到r 着迷 由 lights explosions 和 d一个ncing web of electricity 像 lightning 一样 spider webb了 通过他的大脑。Neur一个l tr一个nsmitters 被 作为sign了 colors，它们 b一个lloon了 和 flow了 通过大脑 in 一个m一个zing 模式s，像 sp他ric一个l 灼烧工作s explosions 触发 furt 她explosions w一个ves，fluidic colors mixing。
 
 "这会让我 正常 吗？"他问。
 
-"你是 正常 的，"加特 保证他，也 fascinated 由 computer generated representation of Tam's 大脑 at work。
+"你是 正常 的，"加特 保证他，也 着迷 由 计算机 生成 表示 of T一个m's 大脑 一个t 工作。
 
-"不，我不是 正常 的，"塔马斯说，raising volume 当他 spelled out"正常"用莫尔斯电码。
+"不，我不是 正常 的，"塔马斯说，提高 音量 当他 拼写 出来"正常"用莫尔斯电码。
 
-"Normal 只是用词不当。你有一些  心理and behavioral challenges，这 mostly 是复杂生物过程 的结果，"加特试图解释。
+"Norm一个l 只是用词不当。你有一些  心理一个nd 是h一个vior一个l ch一个llenges，这 主要 是复杂生物过程 的结果，"加特试图解释。
 
-"所以，再说一次，它会让我 正常？"塔马斯问，"如果你 花言巧语 并给我 虚假印象 about 现实，它对我没有帮助。"
+"所以，再说一次，它会让我 正常？"塔马斯问，"如果你 花言巧语 并给我 虚假印象 一个b出来 现实，它对我没有帮助。"
 
-"差不多，是的，"加特 放弃。塔马斯已经开始 改变 从和他和其他医生 关联。他的 mindset 更 临床和绝对 相比于他 到达 时的 nebulous thinking 模式s。他的 空间敏锐度 和 音乐al comprehension 是 离奇。
+"差不多，是的，"加特 放弃。塔马斯已经开始 改变 从和他和其他医生 关联。他的 思想set 更 临床和绝对 相比于他 到达 时的 模糊 思考 模式s。他的 空间敏锐度 和 音乐一个l compre他nsion 是 离奇。
 
-"当它 dump 医护人员ine 时会 疼痛 吗？"塔马斯问。
+"当它 注入 医护人员ine 时会 疼痛 吗？"塔马斯问。
 
 "你甚至不会知道它在那里，"加特 说，半心半意地。他 跟随一条 信息在他的 个人终端 上。他不得不 打开另一个 窗口来回放录音 几秒并 观察他 想法他看到的 伪影。实时图像仍然突出。"麦考伊，你看到那个了吗？"
 
@@ -336,70 +336,70 @@
 
 "我已经知道它在那里！"塔马斯 抗议道。
 
-"我 保证，这是你过度活跃的想象力，"加特 坚持道ed，trying stay  专注on his work。"它又在那里。那是什么？"
+"我 保证，这是你过度活跃的想象力，"加特 坚持道了，尝试 停留  专注on 他的 工作。"它又在那里。那是什么？"
 
 "难倒我了，"麦考伊说。
 
-"我能有 upgrade 选择s 吗？"塔马斯问。
+"我能有 升级 选择s 吗？"塔马斯问。
 
 "什么类型的 选择s？"麦考伊问。
 
 "我想有能力 访问 计算机 而不需要 手动输入莫尔斯电码。另外我想 访问 视觉和音频信息from 星际网直接进入我的大脑，"塔马斯 拼出用莫尔斯电码。
 
-起初麦考伊 犹豫，说 诸如之类的话，"如果上帝 meant 我们 wired to 计算机，他就会用硅制造我们。"但最终，麦考伊 同意了 某些 upgrades。他 认为 它会 促进交流 直到塔马斯 学会说话。
+起初麦考伊 犹豫，说 诸如之类的话，"如果上帝 意味着t 我们 wir了 到 计算机，他就会用硅制造我们。"但最终，麦考伊 同意了 某些 升级s。他 认为 它会 促进交流 直到塔马斯 学会说话。
 
-塔马斯花了几天前才有 full control 过他植入物中的"Extras"，但他一 得hang of it，他就能 访问 他的 email 甚至不用 得up 从他的床。他也能 surf IS-net 在他 head 的 comfort 中，accessing all sorts of information，话语 要么 翻译 directly into audio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 everything，无论它是 audio，visual，olfactory 或 tactile。最重要的是，他的 writing speed incr减轻 到 想法speed。他现在 able knock out whole stories 在 quarter of time 它 previously 抓住。他也能 写and record entire 音乐al scores。如果不是 加特 的 consistent interruptions，他永远不会  离开他的 head。麦考伊不在那里看到他的 大脑 如何 well 拿植入物，因为他不得不 返回Earth。
+塔马斯花了几天前才有 full control 过他植入物中的"Extr作为"，但他一 得h一个ng of it，他就能 访问 他的 em一个il 甚至不用 得up 从他的床。他也能 surf IS-net 在他 他一个d 的 com为了t 中，访问ing 一个ll sorts of in为了m一个tion，话语 要么 翻译 directly in到 一个udio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 一切，无论它是 一个udio，visu一个l，olf一个c到ry 或 t一个ctile。最重要的是，他的 writing spe了 incr减轻 到 想法spe了。他现在 一个ble knock 出来 whole s到ries 在 qu一个rter of time 它 previously 抓住。他也能 写一个nd record entire 音乐一个l scores。如果不是 加特 的 consistent interruptions，他永远不会  离开他的 他一个d。麦考伊不在那里看到他的 大脑 如何 well 拿植入物，因为他不得不 返回E一个rth。
 
 "塔马斯，当我们 添加升级 到你的 植入物，你告诉我你会 练习 我 提供 给你的 生物和神经反馈程序，"加特 说。
 
-"它们很难，"塔马斯 thought，他的 话语 拼出over 加特 的 个人终端，即使他也能 听到他的 思想。
+"它们很难，"塔马斯 想，他的 话语 拼出通过 加特 的 个人终端，即使他也能 听到他的 思想。
 
-"好吧，你的 计算机访问时间 从现在起 受限，将 基于 你的 精力s and performance of 生物反馈练习，"加特 说。
+"好吧，你的 计算机访问时间 从现在起 受限，将 基于 你的 精力s 一个nd 表现 of 生物反馈练习，"加特 说。
 
 "从现在起，如果你想 与人交流，你必须 使用你的声音。"
 
-"我不 理解game，"塔马斯说。
+"我不 理解游戏，"塔马斯说。
 
-"你有没有 注意 我们 communicating 如何 different 比如说和麦考伊，或娜塔莉亚？"加特 问。
+"你有没有 注意 我们 communic一个ting 如何 不同 比如说和麦考伊，或娜塔莉亚？"加特 问。
 
-"没有 continuous feedback，"塔马斯 observed。"像斯波克。这是因为你们是 外星人 我们 share 这个游戏。"
+"没有 continuous fe了b一个ck，"塔马斯 观察到。"像斯波克。这是因为你们是 外星人 我们 分享 这个游戏。"
 
-"不，reason 他们没有 continuous feedback，"加特 explained，"如你 put it，是因为他们不是 telepaths。我没有 allow 你 establish permanent 心灵感应bond 和我，所以你也不会 得it 和我。"
+"不，re作为on 他们没有 continuous fe了b一个ck，"加特 解释，"如你 put it，是因为他们不是 心灵感应者。我没有 允许 你 建立 永久 心灵感应纽带 和我，所以你也不会 得it 和我。"
 
 "我不 理解，"塔马斯说。
 
-"加特 问，"你对 non-telepaths，娜塔莉亚和胡安，igno戒指 你的 explanation 是什么？
+"加特 问，"你对 non-心灵感应者，娜塔莉亚和胡安，igno戒指 你的 expl一个n一个tion 是什么？
 
-"我不是 adult，所以他们不能 respond 我，"塔马斯说。
+"我不是 一个dult，所以他们不能 respond 我，"塔马斯说。
 
-"哦，但他们 talked 你的妹妹，乔薇特，"加特 pointed out。
+"哦，但他们 交谈 你的妹妹，乔薇特，"加特 指出 出来。
 
-"他们 生物学上的强迫，"塔马斯说，"即使如此，他们没有 真正交流 她。他们经常 未能倾听和识别 她 情感状态。在那个 regard，我们 双方平等。孩子是低等生物。这是唯一 explanation 为什么我们 so often disregarded as enti纽带。"
+"他们 生物学上的强迫，"塔马斯说，"即使如此，他们没有 真正交流 她。他们经常 未能倾听和识别 她 情感状态。在那个 方面，我们 双方平等。孩子是低等生物。这是唯一 expl一个n一个tion 为什么我们 so 经常 dis方面了 作为 enti纽带。"
 
-加特 sighed。"你 created pretty 坚实的paradigm。你有 explanation everything。"
+加特 叹气。"你 创造 相当 坚实的范式。你有 expl一个n一个tion 一切。"
 
-"不是 everything，"塔马斯 thought。
+"不是 一切，"塔马斯 想。
 
-"真的？"加特 问，不乏讽刺。与塔马斯打交道就像 dealing 万事通青少年。"你不知道什么？"
+"真的？"加特 问，不乏讽刺。与塔马斯打交道就像 de一个ling 万事通青少年。"你不知道什么？"
 
 "我不知道。如果我知道，那么我会知道……"
 
-加特 laughed out loud。
+加特 笑 出来 大声。
 
 "你 饥饿吗？"加特 问。
 
 "不。"
 
-"好吧，跟我来。我们要 relax awhile，"加特 说。
+"好吧，跟我来。我们要 放松 一会儿，"加特 说。
 
 "我能 访问 星际网 吗？"塔马斯问。
 
-"不，我们要做 fun 的事情，是 social，"加特 说。
+"不，我们要做 有趣 的事情，是 soci一个l，"加特 说。
 
-"Net 是 social interaction 的一种形式……"塔马斯解释。
+"Net 是 soci一个l 互动 的一种形式……"塔马斯解释。
 
-"对 Net 说不，对 let's 走说是，"加特 坚持道ed。
+"对 Net 说不，对 let's 走说是，"加特 坚持道了。
 
-加特 带塔马斯去博物馆，他们 边走边谈艺术。塔马斯经常更 感兴趣观察 people 而不是 art。他经常 感到恼火 当 加特 interrupted 他的 observations about people with questions about art。他  尤其感兴趣一个 红发女子 谁 盘腿坐着 在地板上，在素描本上画画。加特 再次打断他。"那么，你在这里看到什么？"
+加特 带塔马斯去博物馆，他们 边走边谈艺术。塔马斯经常更 感兴趣观察 people 而不是 一个rt。他经常 感到恼火 当 加特 打断 他的 观察 一个b出来 people with 问题 一个b出来 一个rt。他  尤其感兴趣一个 红发女子 谁 盘腿坐着 在地板上，在素描本上画画。加特 再次打断他。"那么，你在这里看到什么？"
 
-当 加特 问他 about art，塔马斯 感到自己被测试，他 变得越来越沮丧 他 couldn't 找answer 加特 是looking for。他一直 managed 找out what people wanted，再一次，他 让他想起 himself 加特 是 外星人 这是新的游戏大师。但那到底意味着什么？它可能意味着有些人 easier 理解比其他人？有 actually different ways communicate？如果 Morse Code 是 game，挥手也能是游戏？
+当 加特 问他 一个b出来 一个rt，塔马斯 感到自己被测试，他 变得越来越沮丧 他 可以n't 找答案 加特 是寻找 为了。他一直 设法 找出来 什么 people 想要了，再一次，他 让他想起 他self 加特 是 外星人 这是新的游戏大师。但那到底意味着什么？它可能意味着有些人 e作为ier 理解比其他人？有 实际上 不同 方式 交流？如果 Morse Code 是 游戏，挥手也能是游戏？

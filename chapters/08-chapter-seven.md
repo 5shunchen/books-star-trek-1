@@ -16,11 +16,11 @@
 
 他脑海中听到一个声音。是胡安，告诉他中止。通信面板上也有同样的声音，但在他的脑海中感觉更激情。
 
-塔马斯想了想。如果他现在退出，麦考伊肯定会把他带走，他再也见不到 Star、娜塔莉亚、胡安或乔薇特了。还有他的仓鼠。他记得乔薇特说的话。比被麦考伊带走的威胁更甚的是他决心不给他不愿分享的另一种动物带来伤害或伤害风险。他看到了计时器，在他的脑海中，他想象了如果他中止他的生活会是什么样子。在那个场景中，斯波克告诉他如果他继续发射他就无法幸存。
+塔马斯想了想。如果他现在退出，麦考伊肯定会把他带走，他再也见不到 星、娜塔莉亚、胡安或乔薇特了。还有他的仓鼠。他记得乔薇特说的话。比被麦考伊带走的威胁更甚的是他决心不给他不愿分享的另一种动物带来伤害或伤害风险。他看到了计时器，在他的脑海中，他想象了如果他中止他的生活会是什么样子。在那个场景中，斯波克告诉他如果他继续发射他就无法幸存。
 
 在十秒计数时，他打开了点火机构的开关保护盖。他的焦虑随着他证明斯波克错的坚定决心而消失。他几乎觉得自己是另一个人，或者他漂浮在身体外面，俯视着别人。五。他想到古伊南。四。他记得麦考伊对他很好。三。这个瓦肯人有些神秘地引人注目。二。他很确定他讨厌乔薇特。一。"永不回头。"咔嗒。
 
-那一声咔嗒无法撤销。一旦固体燃料罐被点燃，它就会燃烧直到燃料耗尽。塔马斯·帕金·阿巴斯特 - 加西亚几乎立刻意识到几个问题。准确地说，三个。第一位是他的离开速度，由于洞穴的有限空间，被加速了，导致他的飞船像大炮中的炮弹一样从洞口 爆发 出来。曾经向上倾斜并伸出洞穴的轨道被 forced 向下，skew 了他的起飞轨迹。整个洞穴充满了火焰，短暂地 engulf 了整个飞船，直到它 爆发 进入光明，身后拖着火焰和烟雾，前面只剩下蓝天。发生得太快了，他甚至没有感觉到火车落下。他意识到的第二件事是他的惯性阻尼器没有工作。他被 pin 回座位上，努力保持清醒。随着这场斗争，他失去了集中注意力和专注于任何一件事的能力。第三件事，他害怕了。洞穴堡垒不再存在，在火箭离开后不久就 collapsed。collapse 导致两条轨道 下落，火箭 prematurely 从支架上 自由 出来，并且，credit 给塔马斯遵循指示的能力，自动陀螺仪和航空电子设备将火箭带到一个 upright 位置，刚好避免了与峡谷另一侧的 collision。只有图形 re-creation 才能显示他离 wipe out 有多近。
+那一声咔嗒无法撤销。一旦固体燃料罐被点燃，它就会燃烧直到燃料耗尽。塔马斯·帕金·阿巴斯特 - 加西亚几乎立刻意识到几个问题。准确地说，三个。第一位是他的离开速度，由于洞穴的有限空间，被加速了，导致他的飞船像大炮中的炮弹一样从洞口 爆发 出来。曾经向上倾斜并伸出洞穴的轨道被 forced 向下，skew 了他的起飞轨迹。整个洞穴充满了火焰，短暂地 engulf 了整个飞船，直到它 爆发 进入光明，身后拖着火焰和烟雾，前面只剩下蓝天。发生得太快了，他甚至没有感觉到火车落下。他意识到的第二件事是他的惯性阻尼器没有工作。他被 pin 回座位上，努力保持清醒。随着这场斗争，他失去了集中注意力和专注于任何一件事的能力。第三件事，他害怕了。洞穴堡垒不再存在，在火箭离开后不久就 倒下。collapse 导致两条轨道 下落，火箭 prematurely 从支架上 自由 出来，并且，credit 给塔马斯遵循指示的能力，自动陀螺仪和航空电子设备将火箭带到一个 upright 位置，刚好避免了与峡谷另一侧的 collision。只有图形 re-creation 才能显示他离 wipe out 有多近。
 
 火箭 thunde戒指 进入天空，太空舱剧烈 摇晃和震动。塔马斯发现呼吸困难。一些云朵出现，但它们似乎 掉下来，好像它们以超音速 下落，而不是他被 被推进 向相反方向。当天空的蓝色帐篷变得更暗时，震动稍微 减轻。他听到一个声音。他以为可能是胡安，但他不确定。他的呼吸变得更容易。湿气 结冰 到他窗户的边缘。控制台上有一个红灯 闪烁。
 
@@ -82,13 +82,13 @@
 
 它 came down，chutes 部署了。他又一次 bounced 在他的座位上，当 speed 改变时。他可以看到他上面的 chutes，这有点 disheartening，因为他 右at 它，当三个 chutes 中的一个 tore 时。太空舱开始 spin。spin accelerated 直到它 wound 剩余的 chutes completely closed。太空舱 努力 撞击 海洋。这次当塔马斯 bounce 时，他 撞击 了他的头，被 knocked out 寒冷。另一个红灯是自动筏。太空舱 disappeared 进入海洋，slowed，停留 在一米深度，然后 slowly continued 它的 descent 到海底。幸运的是，这里的 floor 只有七十米，well within 潜水队的 para会合ers。
 
-当然，塔马斯不知道潜水队会来 救援。当太空舱开始 充满 冷海水时，他 惊醒。他的头 疼痛，跳动 疼痛，这几乎足以 分散 他从 其余 的 疼痛，以及他的 血液 如何与 水 一起 旋转 的 奇怪 方式。谁会想到头部伤口流血这么多。他 准备屈服于 他的 疲惫，可能已经屈服了，如果不是他看到了海豚的脸。不是 Star，但没关系。海豚认识他，来这里帮助。
+当然，塔马斯不知道潜水队会来 救援。当太空舱开始 充满 冷海水时，他 惊醒。他的头 疼痛，跳动 疼痛，这几乎足以 分散 他从 其余 的 疼痛，以及他的 血液 如何与 水 一起 旋转 的 奇怪 方式。谁会想到头部伤口流血这么多。他 准备屈服于 他的 疲惫，可能已经屈服了，如果不是他看到了海豚的脸。不是 星，但没关系。海豚认识他，来这里帮助。
 
 他 unbuckled 他的 吊索，reach up 到舱口。它不会 budge。他太 疲倦了，想不出为什么它不会 open。也许他 撞击 得如此 努力 它 jammed。也许是 pressure differential。无论哪种方式，他不知道做什么关于它。水现在到他的膝盖。每只海豚轮流 peer in 通过舱口上的小 port，unable 做任何事情，只能 唱encouragement。塔姆再次试了门，然后 remembered 爆炸螺栓。他 activated 系统。海豚 scattered。每个 bolt 灼烧d off 按顺序，每个 bolt 曾经的地方，一股水 came 喷洒ing 通过。门仍然 sealed tight。他 sighed，laid 他的头 against 门， 闭上他的眼睛。他以前 drowned 过一次，在麦考伊带他到这个世界的时候。最糟糕的部分是那第一口气。在那之后，他的 痛苦 会少很多。
 
 一些 火花飞溅 从他的控制台，然后突然整个船 断电。灯 消失，变得 黑暗。当水到他的下巴时，他 沉入 进入 寒冷，黑暗ness。当他这样做时，他 拉动释放舱口的手柄，sp戒指 mechanism opened 它足够让一只海豚 推 它的鼻子进入 舱内。其他海豚 推ed 舱口剩余的方式打开，然后那一只 伸进去，抓住 塔马斯 由他的浮手，咬住，拖 他出来。
 
-"放松，Star 的朋友，"海豚的声音在他的脑海中响起。"Star 的朋友"是一个词，在海豚语言中，一个微妙的 click squeal combo，这是塔马斯 received 的最后一个 complete thought，当他的大脑开始 shut down 时。海豚的声音像一束 light，calling 他 stay，但他不想。"我们帮助你。我们带你上去。"海豚试图用他自己的语言 安抚 塔马斯，但对他们来说用英语 想是不自然的，因为他们没有办法 physically 制声音。
+"放松，星 的朋友，"海豚的声音在他的脑海中响起。"星 的朋友"是一个词，在海豚语言中，一个微妙的 click squeal combo，这是塔马斯 received 的最后一个 complete thought，当他的大脑开始 shut down 时。海豚的声音像一束 light，calling 他 stay，但他不想。"我们帮助你。我们带你上去。"海豚试图用他自己的语言 安抚 塔马斯，但对他们来说用英语 想是不自然的，因为他们没有办法 physically 制声音。
 
 所有那里的海豚 推ed 他向 水面，擦过 他，另一个 抓住 他的另一只手。他们 发出声纳 在他身上，低脉冲 几乎感觉像猫的 pur戒指，但更 强烈。他能感觉 他们的 发声 通过他的身体更快 现在，当他们继续 安抚 他的 痛苦 时。它使死亡 更容易 承受。
 
@@ -206,11 +206,11 @@
 
 ---
 
-在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 Xerx 当他看到麦考伊从 terminal 出来时所做的那样。
+在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 terminal 出来时所做的那样。
 
 麦考伊 adjusted 他的眼睛到 noonday sun，看到 加特 waving，并 waved back。麦考伊 maneuvered 过 crowd，塔马斯 dragging 在后面。男孩看起来 sulking，从他 gait 和 facial expression 判断，加特 得到了 boy's clinical depression severity 的 好feel。Up  关闭and personal，如果他没有 trained 对付 acute  心理illness，它会是 overwhelming。一些附近的 telepaths picked up depression 并 c丝袜 给塔马斯更宽的 berth，但没有人 resist looking 他试图 fathom 怎么有人 so young 能 so apathetic to living。
 
-加特 Xerx 欢迎 麦考伊上将 打开arms 和 贴面礼。虽然他知道麦考伊 不自在 这样的 亲昵举动，公开或私下，他知道他可以 得逞。"很高兴再见到你，我的朋友。来，来，我有 去餐厅的交通工具在等着。你知道，你 刚错过 钱德拉 的婚礼几天前。"
+加特 泽克斯 欢迎 麦考伊上将 打开arms 和 贴面礼。虽然他知道麦考伊 不自在 这样的 亲昵举动，公开或私下，他知道他可以 得逞。"很高兴再见到你，我的朋友。来，来，我有 去餐厅的交通工具在等着。你知道，你 刚错过 钱德拉 的婚礼几天前。"
 
 "钱德拉结婚了？"麦考伊问。"我老了。"
 
@@ -288,7 +288,7 @@
 
 "他没有 insane，"麦考伊说多于问。
 
-"不，他 clearly not insane，但可以说他的 predilection towards genius 是那个 prenatal event 的 manifestation，"加特 说，"我一直 观察 一些 recur戒指 思想 和 patterns，这是他 OCD 的一部分。基于这个 encounter 和你发给我的 medical profile，我 highly recommend 他 fitted 一个 植入物 帮助 alleviate 一些 anxiety 和 depression symptoms，以及 control compulsive behavior 和 attention deficit disorder。Implants 将 帮助monitor more closely 他的 glutamate，serotonin，和 gamma-aminobutric acid levels，并在 deficient 时 add neurotransmitters。"
+"不，他 clearly not insane，但可以说他的 predilection towards genius 是那个 prenatal event 的 manifestation，"加特 说，"我一直 观察 一些 recur戒指 思想 和 patterns，这是他 OCD 的一部分。基于这个 encounter 和你发给我的 医护人员al profile，我 highly recommend 他 fitted 一个 植入物 帮助 alleviate 一些 anxiety 和 depression symptoms，以及 control compulsive behavior 和 attention deficit disorder。Implants 将 帮助monitor more closely 他的 glutamate，serotonin，和 gamma-aminobutric acid levels，并在 deficient 时 add neurotransmitters。"
 
 "我 害怕你会 recommend 那个，"麦考伊说，"这不是第一次 suggest 这个 treatment。"
 
@@ -328,7 +328,7 @@
 
 "差不多，是的，"加特 surrendered。塔马斯已经开始 change 从和他和其他医生 association。他的 mindset 更 clinical and absolute 相比于他 arrive 时的 nebulous thinking patterns。他的 spatial acuity 和 musical comprehension 是 off the charts。
 
-"当它 dump medicine 时会 疼痛 吗？"塔马斯问。
+"当它 dump 医护人员ine 时会 疼痛 吗？"塔马斯问。
 
 "你甚至不会知道它在那里，"加特 说，半心半意地。他 跟随一条 信息在他的 个人终端 上。他不得不 打开另一个 窗口来回放录音 几秒并 观察他 想法他看到的 伪影。实时图像仍然突出。"麦考伊，你看到那个了吗？"
 

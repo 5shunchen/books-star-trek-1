@@ -294,7 +294,7 @@ Data 点头。"除了是一个 accomplished musician，你也是一个 philosoph
 
 当 Galileo 接近 Sarran 时，Data 请求 docking 许可。起初他们拒绝了，但当他们听说塔马斯在船上时，他们 capitulated 了。
 
-"谢谢，Data，"塔马斯说。"随时给我发邮件。或者，谁知道呢，也许有一天我会在 subspace radio 上 catch 到你。"
+"谢谢，Data，"塔马斯说。"随时给我发邮件。或者，谁知道呢，也许有一天我会在 子空间 radio 上 catch 到你。"
 
 "我会 listening 你，"Data 说。
 
@@ -454,7 +454,7 @@ Clooney 夫人出现了，黑白。"你准备好了吗？"她问他。
 
 塔马斯很高兴回到工作，直到 Melinda 来上班，经过他的站时连一眼都没看。自从她知道他已经结婚以来已经一年半了，她还没有和他说过话。她确实停下来与另一个 STC 人员说话，似乎与她正在 relieving 的人类男性有一个 pleasant exchange。她的眼睛从未 meeting 塔马斯的眼睛。他必须有意识地决定不把它当回事。她要么会再和他说话，要么不会。没有情绪，对吧？
 
-错了。他转回他的站，通过计算他还有多少时间完成他的缓刑来 torture 自己。屏幕上的某事引起了他的注意。他推开他的 concerns，同时试图 identify radio emission signature。这是他以前从未见过的，知道是好的。它是一个 宝藏 或计算机 glitch。它是 gamma frequencies 中的单一能量 burst，他相当确定它起源于瓦肯太阳系内。他 logged 它，等待更多，同时运行 comparative search 寻找任何 remotely 喜欢它。因为它只是一个 single pulse，他将无法 triangulate 并 determine 它的来源到任何 degree of certainty，但他有 area narrowed down 到五百万公里内。它可能只是 space noise，或 spontaneous burst of energy 从 space vacuum，时不时发生，虽然通常不在 gamma range。塔马斯瞥了一眼 Melinda。他想与她保持良好的关系，但这不是他的错。也许他不应该告诉任何人他已经结婚了，他想，因为 Melinda 的 reaction 是 norm，至少在人类中。这不像是一个"真正的"婚姻，他继续 rationalize 情况。她的背对着他，以及对占据她后面站的瓦肯人。他喜欢她的头发掉落的方式。他不得不想知道他是否在 obsessing 关于她，因为他们之间结束了，还是因为他真的喜欢她。
+错了。他转回他的站，通过计算他还有多少时间完成他的缓刑来 torture 自己。屏幕上的某事引起了他的注意。他推开他的 concerns，同时试图 identify radio emission signature。这是他以前从未见过的，知道是好的。它是一个 宝藏 或计算机 glitch。它是 gamma frequencies 中的单一能量 爆发，他相当确定它起源于瓦肯太阳系内。他 logged 它，等待更多，同时运行 comparative search 寻找任何 remotely 喜欢它。因为它只是一个 single pulse，他将无法 triangulate 并 determine 它的来源到任何 degree of certainty，但他有 area narrowed down 到五百万公里内。它可能只是 space noise，或 spontaneous 爆发 of energy 从 space vacuum，时不时发生，虽然通常不在 gamma range。塔马斯瞥了一眼 Melinda。他想与她保持良好的关系，但这不是他的错。也许他不应该告诉任何人他已经结婚了，他想，因为 Melinda 的 reaction 是 norm，至少在人类中。这不像是一个"真正的"婚姻，他继续 rationalize 情况。她的背对着他，以及对占据她后面站的瓦肯人。他喜欢她的头发掉落的方式。他不得不想知道他是否在 obsessing 关于她，因为他们之间结束了，还是因为他真的喜欢她。
 
 塔马斯将他的 focus 转移到 Melinda 后面的瓦肯人。他似乎有呼吸困难，好像他在窒息。塔马斯可能错过了它，如果他没有 looking 通过瓦肯人的头在 Melinda。他没有浪费时间到达瓦肯人。
 

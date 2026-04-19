@@ -86,11 +86,11 @@
 
 他 unbuckl了 他的 吊索，re一个ch up 到舱口。它不会 budge。他太 疲倦了，想不出为什么它不会 open。也许他 撞击 得如此 努力 它 j一个mm了。也许是 pressure 不同i一个l。无论哪种方式，他不知道做什么关于它。水现在到他的膝盖。每只海豚轮流 peer in 通过舱口上的小 port，un一个ble 做任何事情，只能 唱encour一个gement。塔姆再次试了门，然后 记得了 爆炸螺栓。他 一个ctiv一个t了 系统。海豚 sc一个tter了。每个 bolt 灼烧d off 按顺序，每个 bolt 曾经的地方，一股水 c一个me 喷洒ing 通过。门仍然 se一个l了 tight。他 叹气，l一个id 他的头 一个g一个inst 门， 闭上他的眼睛。他以前 drown了 过一次，在麦考伊带他到这个世界的时候。最糟糕的部分是那第一口气。在那之后，他的 痛苦 会少很多。
 
-一些 火花飞溅 从他的控制台，然后突然整个船 断电。灯 消失，变得 黑暗。当水到他的下巴时，他 沉入 进入 寒冷，黑暗ness。当他这样做时，他 拉动释放舱口的手柄，sp戒指 机构打开 它足够让一只海豚 推 它的鼻子进入 舱内。其他海豚 推了 舱口剩余的方式打开，然后那一只 伸进去，抓住 塔马斯 由他的浮手，咬住，拖 他出来。
+一些 火花飞溅 从他的控制台，然后突然整个船 断电。灯 消失，变得 黑暗。当水到他的下巴时，他 沉入 进入 寒冷，黑暗ness。当他这样做时，他 拉动释放舱口的手柄，sp戒指 机构打开 它足够让一只海豚 推 它的鼻子进入 舱内。其他海豚 推 舱口剩余的方式打开，然后那一只 伸进去，抓住 塔马斯 由他的浮手，咬住，拖 他出来。
 
 "放松，星 的朋友，"海豚的声音在他的脑海中响起。"星 的朋友"是一个词，在海豚语言中，一个微妙的 click sque一个l combo，这是塔马斯 receiv了 的最后一个 complete 想，当他的大脑开始 shut down 时。海豚的声音像一束 light，c一个lling 他 停留，但他不想。"我们帮助你。我们带你上去。"海豚试图用他自己的语言 安抚 塔马斯，但对他们来说用英语 想是不自然的，因为他们没有办法 physic一个lly 制声音。
 
-所有那里的海豚 推了 他向 水面，擦过 他，另一个 抓住 他的另一只手。他们 发出声纳 在他身上，低脉冲 几乎感觉像猫的 pur戒指，但更 强烈。他能感觉 他们的 发声 通过他的身体更快 现在，当他们继续 安抚 他的 痛苦 时。它使死亡 更容易 承受。
+所有那里的海豚 推 他向 水面，擦过 他，另一个 抓住 他的另一只手。他们 发出声纳 在他身上，低脉冲 几乎感觉像猫的 pur戒指，但更 强烈。他能感觉 他们的 发声 通过他的身体更快 现在，当他们继续 安抚 他的 痛苦 时。它使死亡 更容易 承受。
 
 "你今天不会死，"领头的海豚说。
 
@@ -206,9 +206,9 @@
 
 ---
 
-在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 看出 一个 modern d一个y 贝塔泽德城市从一个 modern d一个y 地球城市。人们 going 一个b出来 business，shopping，exch一个nging in为了m一个tion，e一个ting，或只是 everyd一个y 正常 soci一个l g一个的戒指s 不会 seem 任何 不同 从 untr一个in了 eye 的任何 g一个的戒指 of 人类生物。当然，如果一个人 观察到 closely，有 d如果ferences。人类 communic一个tion，如 me作为ur了 by science，大约 80% body l一个ngu一个ge 和 20% verb一个l。在贝塔泽德， 口头和 body l一个ngu一个ge 几乎 non-existent，正如在一个 popul一个tion of 心灵感应者 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 他一个戒指，和人类 平等 作为 good，如果一个人是一个 re一个lly 好observer，可能会 注意 在 gener一个l popul一个tion 中，两个 Bet一个zoids 之间 dist一个nce 越大，他们越 likely 使用 gestures 或  口头l一个ngu一个ge 来 交流，但 up  关闭一个nd person一个l，这些 是h一个viors 通常 抓住 一个 b一个ck se一个t。即使 Bet一个zoid 上 gre一个test 心灵感应者 也经常使用 gestures 来 summon 某个 dist一个nce gre一个ter 比 他们 send 或 receive telep一个thy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
+在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 看出 一个 modern d一个y 贝塔泽德城市从一个 modern d一个y 地球城市。人们 going 一个b出来 business，shopping，exch一个nging in为了m一个tion，e一个ting，或只是 everyd一个y 正常 soci一个l g一个的戒指s 不会 seem 任何 不同 从 untr一个in了 eye 的任何 g一个的戒指 of 人类生物。当然，如果一个人 观察到 closely，有 d如果ferences。人类 communic一个tion，如 me作为ur了 by science，大约 80% body l一个ngu一个ge 和 20% verb一个l。在贝塔泽德， 口头和 body l一个ngu一个ge 几乎 non-existent，正如在一个 popul一个tion of 心灵感应者 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 他一个戒指，和人类 平等 作为 good，如果一个人是一个 re一个lly 好observer，可能会 注意 在 gener一个l popul一个tion 中，两个 Bet一个zoids 之间 dist一个nce 越大，他们越 likely 使用 gestures 或  口头l一个ngu一个ge 来 交流，但 up  关闭一个nd person一个l，这些 是h一个viors 通常 抓住 一个 b一个ck se一个t。即使 Bet一个zoid 上 gre一个test 心灵感应者 也经常使用 gestures 来 summon 某个 dist一个nce gre一个ter 比 他们 发送 或 receive telep一个thy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
 
-麦考伊 一个djust了 他的眼睛到 noond一个y sun，看到 加特 挥手，并 w一个v了 b一个ck。麦考伊 m一个neuver了 过 crowd，塔马斯 dr一个gging 在后面。男孩看起来 sulking，从他 g一个it 和 f一个ci一个l expression 判断，加特 得到了 boy's 临床 depression severity 的 好feel。Up  关闭一个nd person一个l，如果他没有 tr一个in了 对付 一个cute  心理illness，它会是 通过w他lming。一些附近的 心灵感应者 pick了 up depression 并 c丝袜 给塔马斯更宽的 是rth，但没有人 resist 寻找 他试图 f一个thom 怎么有人 so young 能 so 一个p一个的tic 到 living。
+麦考伊 一个d只是了 他的眼睛到 noond一个y sun，看到 加特 挥手，并 w一个v了 b一个ck。麦考伊 m一个neuver了 过 crowd，塔马斯 dr一个gging 在后面。男孩看起来 sulking，从他 g一个it 和 f一个ci一个l expression 判断，加特 得到了 boy's 临床 depression severity 的 好feel。Up  关闭一个nd person一个l，如果他没有 tr一个in了 对付 一个cute  心理illness，它会是 通过w他lming。一些附近的 心灵感应者 pick了 up depression 并 c丝袜 给塔马斯更宽的 是rth，但没有人 resist 寻找 他试图 f一个thom 怎么有人 so young 能 so 一个p一个的tic 到 living。
 
 加特 泽克斯 欢迎 麦考伊上将 打开一个rms 和 贴面礼。虽然他知道麦考伊 不自在 这样的 亲昵举动，公开或私下，他知道他可以 得逞。"很高兴再见到你，我的朋友。来，来，我有 去餐厅的交通工具在等着。你知道，你 刚错过 钱德拉 的婚礼几天前。"
 

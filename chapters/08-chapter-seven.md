@@ -28,7 +28,7 @@
 
 "塔马斯，自动化 malfunctioning。你必须 manually 释放第一级，"胡安在他耳边 whisper。
 
-他 understood 这个声音，但即便如此，他还是 relied 在莫尔斯电码上。他的 mind 自动 translated 伴随他耳机上声音的莫尔斯电码，但他有太多 trouble 甚至尝试 tap 出一个回应。
+他 understood 这个声音，但即便如此，他还是 relied 在莫尔斯电码上。他的 mind 自动 translated 伴随他耳机上声音的莫尔斯电码，但他有太多 trouble 甚至尝试 轻敲出一个回应。
 
 "你怎么上来的？"塔马斯问。没有人回答，但他习惯了那样。没有人 ever 回答他，除非他玩莫尔斯游戏，他不想玩莫尔斯游戏。reach 他的 PADD 需要太多 effort。
 
@@ -206,109 +206,109 @@
 
 ---
 
-在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday normal social gatherings 不会 seem 任何 different 从 untrained eye 的任何 gathering of human beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德，verbal 和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 other senses，sight，smell，和 hearing，和人类 equally as good，如果一个人是一个 really good observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或 verbal language 来 communicate，但 up close and personal，这些 behaviors 通常 took a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 Gart Xerx 当他看到麦考伊从 terminal 出来时所做的那样。
+在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday normal social gatherings 不会 seem 任何 different 从 untrained eye 的任何 gathering of human beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德，verbal 和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 other senses，sight，smell，和 hearing，和人类 equally as good，如果一个人是一个 really good observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或 verbal language 来 communicate，但 up close and personal，这些 behaviors 通常 took a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 Xerx 当他看到麦考伊从 terminal 出来时所做的那样。
 
-麦考伊 adjusted 他的眼睛到 noonday sun，看到 Gart waving，并 waved back。麦考伊 maneuvered 过 crowd，塔马斯 dragging 在后面。男孩看起来 sulking，从他 gait 和 facial expression 判断，Gart 得到了 boy's clinical depression severity 的 good feel。Up close and personal，如果他没有 trained 对付 acute mental illness，它会是 overwhelming。一些附近的 telepaths picked up depression 并 chose 给塔马斯更宽的 berth，但没有人 resist looking 他试图 fathom 怎么有人 so young 能 so apathetic to living。
+麦考伊 adjusted 他的眼睛到 noonday sun，看到 加特 waving，并 waved back。麦考伊 maneuvered 过 crowd，塔马斯 dragging 在后面。男孩看起来 sulking，从他 gait 和 facial expression 判断，加特 得到了 boy's clinical depression severity 的 good feel。Up close and personal，如果他没有 trained 对付 acute mental illness，它会是 overwhelming。一些附近的 telepaths picked up depression 并 chose 给塔马斯更宽的 berth，但没有人 resist looking 他试图 fathom 怎么有人 so young 能 so apathetic to living。
 
-Gart Xerx welcomed 麦考伊上将 open arms 和 cheek kiss。虽然他知道麦考伊 uncomfortable 这样的 affection，public 或 private，他知道他可以 get away with it。"很高兴再见到你，我的朋友。来，来，我有 transportation 到 restaurant waiting。你知道，你 just missed Chandra 的婚礼几天。"
+加特 Xerx welcomed 麦考伊上将 open arms 和 cheek kiss。虽然他知道麦考伊 uncomfortable 这样的 affection，public 或 private，他知道他可以 get away with it。"很高兴再见到你，我的朋友。来，来，我有 transportation 到 restaurant waiting。你知道，你 just missed 钱德拉 的婚礼几天。"
 
 "钱德拉结婚了？"麦考伊问。"我老了。"
 
-"胡说，我的朋友，"Gart assure 他。"为什么，你的 mind 仍然和我 ever remember 的一样 strong……为什么，这是谁？塔马斯·帕金·阿巴斯特·加西亚，是吗？"
+"胡说，我的朋友，"加特 assure 他。"为什么，你的 mind 仍然和我 ever remember 的一样 strong……为什么，这是谁？塔马斯·帕金·阿巴斯特·加西亚，是吗？"
 
 "塔姆，"塔马斯 correct。"像汤姆叔叔的小屋。"
 
-"你的意思是汤姆？"Gart 问。
+"你的意思是汤姆？"加特 问。
 
 "我就是那个意思，"塔马斯说。
 
-"不，你是想它。当你不说的时候，很难听到区别，"Gart 说。
+"不，你是想它。当你不说的时候，很难听到区别，"加特 说。
 
 塔马斯 ignored 回应，研究了 spaceport terminal 的 hustling crowd。他 returned stares for stare 并 noticed 他的 deliberate eye contact 经常 hurried folks along，这只会 fueled 他的想法他是一个 monster。他的眼睛 paused 在一个女孩身上，她没有 observing 他。她是 Fleet，穿着 uniform 的 mini skirt option。它的 yellow 和 black patterns reminded 他一只 bumble bee，她的 hose 是 sheer with glitter sparkling 在 noon sun。
 
-Gart repeated 他的 request 给塔马斯 get in the car。塔马斯已经 spent 这么多年 not communicating，他现在 indifferent 到任何 Gart 的 efforts 来 engage 他。他 frowned 当麦考伊给了一个 little push towards the vehicle，女人 disappeared 从他的 view。他 climbed 进 vehicle 并 slid 到 far side，letting 他的 backpack come around 到他的 lap。他 held 它到他的 chest 像一个 security blanket，stuffed ferret 的头 sticking through the flap。Gart 和麦考伊 climbed 进在他之后。
+加特 repeated 他的 request 给塔马斯 get in the car。塔马斯已经 spent 这么多年 not communicating，他现在 indifferent 到任何 加特 的 efforts 来 engage 他。他 frowned 当麦考伊给了一个 little push towards the vehicle，女人 disappeared 从他的 view。他 climbed 进 vehicle 并 slid 到 far side，letting 他的 backpack come around 到他的 lap。他 held 它到他的 chest 像一个 security blanket，stuffed ferret 的头 sticking through the flap。加特 和麦考伊 climbed 进在他之后。
 
-"我听说你下周要八岁了，"Gart 说。
+"我听说你下周要八岁了，"加特 说。
 
 塔马斯 frowned。"按地球年。在奥兰，我还有四个月。"
 
-"那么，我们按地球年算，"Gart 说。
+"那么，我们按地球年算，"加特 说。
 
-塔马斯 met Gart 的眼睛。
+塔马斯 met 加特 的眼睛。
 
-"是的，"Gart 说，对麦考伊听不到的问题，"我用我的声音和你说话，同时也用心灵感应和你交流。你能听到区别吗？"
+"是的，"加特 说，对麦考伊听不到的问题，"我用我的声音和你说话，同时也用心灵感应和你交流。你能听到区别吗？"
 
 "我不理解这个游戏，"塔马斯说。
 
-对 Gart，甚至塔马斯的 thought 都是 monotone，但他不能 help chuckling 在塔马斯的 remark 和它听起来多么 dry。"我想我能帮你。你想在贝塔泽德庆祝你的生日吗？"
+对 加特，甚至塔马斯的 thought 都是 monotone，但他不能 help chuckling 在塔马斯的 remark 和它听起来多么 dry。"我想我能帮你。你想在贝塔泽德庆祝你的生日吗？"
 
 "我为什么要那样做？我不仅 born in the past，我也不是 born on this planet。如果有 celebration，它很久以前就完成了，在另一个 planet far away from here，"塔马斯想。
 
-"我看到有人和瓦肯人混在一起，"Gart 说， chuckling。"如果我没记错的话，庆祝每个人出生的 anniversary 是人类 custom。你和加西亚一家在一起时没有庆祝任何生日吗？"
+"我看到有人和瓦肯人混在一起，"加特 说， chuckling。"如果我没记错的话，庆祝每个人出生的 anniversary 是人类 custom。你和加西亚一家在一起时没有庆祝任何生日吗？"
 
 "哦，"塔马斯想，"他们玩了一个我没有参与的游戏。此外，你问我是否想在贝塔泽德庆祝它是 illogical，seeing how 我没有 choice in the matter。"
 
-Gart smiled。"他在我看来 well adjusted，"Gart 说，turning 麦考伊。
+加特 smiled。"他在我看来 well adjusted，"加特 说，turning 麦考伊。
 
 "司机，带我们去 Metsuine。即使我不是心灵感应者，我也能 tell 你们都 starving，你们会 love 那里的 food。"
 
 电动车的 driver 带他们从 spaceport 到 downtown 显然是一种 robot，但塔马斯不 interested 在它的 thin frame，或 animated face 当它 accepted instructions。塔马斯 closed 他的眼睛并 leaned back，不允许自己 luxury of looking out the window。他们可以 force 他来这里，但他们不会 force 他 like 它。
 
-"你真的应该看看风景，塔马斯。我们为 landscaping 感到 pride。我们建筑的 architecture contributes 到 local terrain 的 ecology。Telepathic races prefer live in harmony with nature，"Gart explained 他。
+"你真的应该看看风景，塔马斯。我们为 landscaping 感到 pride。我们建筑的 architecture contributes 到 local terrain 的 ecology。Telepathic races prefer live in harmony with nature，"加特 explained 他。
 
 "destroy 孕育你的 species 并 allow 它 evolve 的 environment 没有意义，对吧？此外，surrounded by nature enhances 我们的 moods 并 helps lay down foundation for healthier lives。"
 
 "根据斯波克，塔姆的 telepathic abilities 仅限于他有 physical contact 的人，"麦考伊说。
 
-Gart nodded。"我已经 assessed 他的 abilities 并 determined 他是一个 extremely sensitive empath。我能 sense 他有 bonds，但我 unable determine numbers。目前，他 heavily relying 你 emotional assurance 他是 safe。别担心。我 confident 我能 help 他 develop appropriate boundaries。我 suspect 我会在几周内让他 talking 像一个 normal human child。With in reason。"
+加特 nodded。"我已经 assessed 他的 abilities 并 determined 他是一个 extremely sensitive empath。我能 sense 他有 bonds，但我 unable determine numbers。目前，他 heavily relying 你 emotional assurance 他是 safe。别担心。我 confident 我能 help 他 develop appropriate boundaries。我 suspect 我会在几周内让他 talking 像一个 normal human child。With in reason。"
 
 "With in reason？"麦考伊问。
 
-"他的大部分 bonds 都是和成年人，"Gart 说，"虽然他 clearly still 有 thought processes 有 child like qualities，但他的 thought patterns emulate adult thinking。这是你可以预期的 child raised strictly around scientist 没有其他 kids play with。和成年人 bonded 也 influenced 他的 physiology。例如，因为他有 bonds 的成年人 are and have been sexual，他 started puberty 比他 probably would have 如果他没有 telepathic 更早。"
+"他的大部分 bonds 都是和成年人，"加特 说，"虽然他 clearly still 有 thought processes 有 child like qualities，但他的 thought patterns emulate adult thinking。这是你可以预期的 child raised strictly around scientist 没有其他 kids play with。和成年人 bonded 也 influenced 他的 physiology。例如，因为他有 bonds 的成年人 are and have been sexual，他 started puberty 比他 probably would have 如果他没有 telepathic 更早。"
 
 "你必须 treat 他好像他是 abused？"麦考伊问。
 
-"我不这么认为，"Gart 说，"他的所有 bond mates，如果你愿意的话，似乎都有 reasonably healthy attitudes towards sex，所以我不把他和 child abuse case 比较。他不是任何 sexual aggression 的 target。他只是比 non-telepath 更 aware 性 thoughts 和 emotions。我们在 Betazoid 上看到很多这个 particular issue。大多数 Betazoid kids simply ignore adult thoughts 直到 puberty onset，然后我们 deal 他们的 curiosity relative 到孩子的 temperament。当然，given 塔姆的 obsessive compulsive tendencies，如果他 fully entered puberty 在成年人周围 without establishing better boundaries，他肯定会有 some difficulties ahead。"
+"我不这么认为，"加特 说，"他的所有 bond mates，如果你愿意的话，似乎都有 reasonably healthy attitudes towards sex，所以我不把他和 child abuse case 比较。他不是任何 sexual aggression 的 target。他只是比 non-telepath 更 aware 性 thoughts 和 emotions。我们在 Betazoid 上看到很多这个 particular issue。大多数 Betazoid kids 简直 ignore adult thoughts 直到 puberty onset，然后我们 deal 他们的 curiosity relative 到孩子的 temperament。当然，given 塔姆的 obsessive compulsive tendencies，如果他 fully entered puberty 在成年人周围 without establishing better boundaries，他肯定会有 some difficulties ahead。"
 
 "我想我们来对地方了，"麦考伊说。
 
-"绝对。他似乎 experienced some trauma，"Gart 继续说，"我猜他 witnessed 他父母的 death，那是 violent？但最 intriguing mental aberration deals with something pre-natal，我不 understand。有一个 definite event 影响了 brain 的 physical structure。"
+"绝对。他似乎 experienced some trauma，"加特 继续说，"我猜他 witnessed 他父母的 death，那是 violent？但最 intriguing mental aberration deals with something pre-natal，我不 understand。有一个 definite event 影响了 brain 的 physical structure。"
 
 "他有更 developed neural pathways 比他这个年龄的人可能有的，"麦考伊说，"但我在他的 brain scans 中没有看到任何 suggest abnormalities。"
 
-"这不是 abnormality，它不会显示在 scan 上，"Gart 说，"我能看到它是因为我能 feel 能量如何 moves though 他的大脑。我从来没有在一个 socially functional 的人类中 feel 到这个。"
+"这不是 abnormality，它不会显示在 scan 上，"加特 说，"我能看到它是因为我能 feel 能量如何 moves though 他的大脑。我从来没有在一个 socially functional 的人类中 feel 到这个。"
 
 "你是什么意思？"麦考伊说。
 
-Gart thought 了一会儿。"你熟悉 Medusans 物种吗？"
+加特 thought 了一会儿。"你熟悉 Medusans 物种吗？"
 
 "是的，"麦考伊说，reminiscing。每个见过 Medusan 的人类都 gone completely and irreversibly mad。"我见过 Kolios 大使，很久以前，他由米兰达·琼斯医生陪同。她是第一个与 Medusan 建立 successful telepathic bonds 的心理学家。她由于 blindness 避免了 insanity。"
 
-"我读过她的一些作品。无论如何，我 attempted counseling 有过这种 encounter 的人类，试图 cure 他们的 insanity，"Gart 说，"那就是当我 watch 能量 flow through 塔马斯的 mind 时我得到的 impression。"
+"我读过她的一些作品。无论如何，我 attempted counseling 有过这种 encounter 的人类，试图 cure 他们的 insanity，"加特 说，"那就是当我 watch 能量 flow through 塔马斯的 mind 时我得到的 impression。"
 
 "他没有 insane，"麦考伊说多于问。
 
-"不，他 clearly not insane，但可以说他的 predilection towards genius 是那个 prenatal event 的 manifestation，"Gart 说，"我一直 observing 一些 recurring thoughts 和 patterns，这是他 OCD 的一部分。基于这个 encounter 和你发给我的 medical profile，我 highly recommend 他 fitted 一个 implant 帮助 alleviate 一些 anxiety 和 depression symptoms，以及 control compulsive behavior 和 attention deficit disorder。Implants 将 help monitor more closely 他的 glutamate，serotonin，和 gamma-aminobutric acid levels，并在 deficient 时 add neurotransmitters。"
+"不，他 clearly not insane，但可以说他的 predilection towards genius 是那个 prenatal event 的 manifestation，"加特 说，"我一直 observing 一些 recurring thoughts 和 patterns，这是他 OCD 的一部分。基于这个 encounter 和你发给我的 medical profile，我 highly recommend 他 fitted 一个 implant 帮助 alleviate 一些 anxiety 和 depression symptoms，以及 control compulsive behavior 和 attention deficit disorder。Implants 将 help monitor more closely 他的 glutamate，serotonin，和 gamma-aminobutric acid levels，并在 deficient 时 add neurotransmitters。"
 
 "我 afraid 你会 recommend 那个，"麦考伊说，"这不是第一次 suggest 这个 treatment。"
 
-"这不是坏事，医生，"Gart 说，"有了这个 implant，我们可以 rely totally on counseling 和 biofeedback technologies，不被 limit 到 psychotropic drugs。设备只会 increase deficient levels of natural neurotransmitters，并且只在医生的指导下。"
+"这不是坏事，医生，"加特 说，"有了这个 implant，我们可以 rely totally on counseling 和 biofeedback technologies，不被 limit 到 psychotropic drugs。设备只会 increase deficient levels of natural neurotransmitters，并且只在医生的指导下。"
 
 "我知道，"麦考伊说，"我 authorize 程序。"
 
-"你能和我 share 他发生了什么吗？"Gart 问。
+"你能和我 share 他发生了什么吗？"加特 问。
 
 "你能对其他 telepaths keep 一个 secret 吗？"麦考伊说。
 
-"当然，"Gart 说。
+"当然，"加特 说。
 
-"好吧，你有 permission read 我的 mind，"麦考伊说。他开始 thinking 关于塔马斯和他 understand 凯尔文人 mind impression technique 是什么样子，expected results 应该是什么，actual results 是什么。Gart 现在有 enough information 来 understand。而且，为了 extra，麦考伊 shared 他与凯尔文人的 experiences，从他第一次见到他们到现在。他还 shared 塔马斯从生物学角度讲是麦考伊的后代。
+"好吧，你有 permission read 我的 mind，"麦考伊说。他开始 thinking 关于塔马斯和他 understand 凯尔文人 mind impression technique 是什么样子，expected results 应该是什么，actual results 是什么。加特 现在有 enough information 来 understand。而且，为了 extra，麦考伊 shared 他与凯尔文人的 experiences，从他第一次见到他们到现在。他还 shared 塔马斯从生物学角度讲是麦考伊的后代。
 
-"所以，虽然他可能看起来 human，"Gart 说，"感谢这个 imprinting，他 actually 是凯尔文人。我从来没有见过凯尔文人。我 wonder 印记是 100% effective 还是 only partial。好吧，我们到了。让我们 put this aside 并 enjoy 我们的 meal。你会 stay 几天作为我的 guest，对吧？"
+"所以，虽然他可能看起来 human，"加特 说，"感谢这个 imprinting，他 actually 是凯尔文人。我从来没有见过凯尔文人。我 wonder 印记是 100% effective 还是 only partial。好吧，我们到了。让我们 put this aside 并 enjoy 我们的 meal。你会 stay 几天作为我的 guest，对吧？"
 
 "我想，"麦考伊说，"如果它不会 interrupt 塔的 progress。"
 
-"他已经 halfway cured，"Gart promise。
+"他已经 halfway cured，"加特 promise。
 
 ---
 
@@ -318,25 +318,25 @@ Gart thought 了一会儿。"你熟悉 Medusans 物种吗？"
 
 "这会让我 normal 吗？"他问。
 
-"你是 normal 的，"Gart assure 他，也 fascinated 由 computer generated representation of Tam's brain at work。
+"你是 normal 的，"加特 assure 他，也 fascinated 由 computer generated representation of Tam's brain at work。
 
 "不，我不是 normal 的，"塔马斯说，raising volume 当他 spelled out"normal"用莫尔斯电码。
 
-"Normal 只是 wrong choice of words。你有一些 mental and behavioral challenges，这 mostly 是 complex biological processes 的结果，"Gart tried explain。
+"Normal 只是 wrong choice of words。你有一些 mental and behavioral challenges，这 mostly 是 complex biological processes 的结果，"加特 tried explain。
 
-"所以，再说一次，它会让我 normal？"塔马斯问，"如果你 soft soap stuff 并给我 false impression about reality，它对我没有帮助。"
+"所以，再说一次，它会让我 normal？"塔马斯问，"如果你 soft soap 玩意儿 并给我 false impression about reality，它对我没有帮助。"
 
-"差不多，是的，"Gart surrendered。塔马斯已经开始 change 从和他和其他医生 association。他的 mindset 更 clinical and absolute 相比于他 arrive 时的 nebulous thinking patterns。他的 spatial acuity 和 musical comprehension 是 off the charts。
+"差不多，是的，"加特 surrendered。塔马斯已经开始 change 从和他和其他医生 association。他的 mindset 更 clinical and absolute 相比于他 arrive 时的 nebulous thinking patterns。他的 spatial acuity 和 musical comprehension 是 off the charts。
 
 "当它 dump medicine 时会 hurt 吗？"塔马斯问。
 
-"你甚至不会知道它在那里，"Gart 说，half heartedly。他 following 一条 information 在他的 PADD 上。他不得不 open 另一个 window 来 run recording back 几秒并 observe 他 thought 他看到的 artifact。real time image remained prominent。"麦考伊，你看到那个了吗？"
+"你甚至不会知道它在那里，"加特 说，half heartedly。他 following 一条 information 在他的 PADD 上。他不得不 open 另一个 window 来 run recording back 几秒并 observe 他 thought 他看到的 artifact。real time image remained prominent。"麦考伊，你看到那个了吗？"
 
 "看到什么？"麦考伊问，显然 missing it。
 
 "我已经知道它在那里！"塔马斯 protest。
 
-"我 assure 你，这是你 over active imagination，"Gart insisted，trying stay focused on his work。"它又在那里。那是什么？"
+"我 assure 你，这是你 over active imagination，"加特 insisted，trying stay focused on his work。"它又在那里。那是什么？"
 
 "难倒我了，"麦考伊说。
 
@@ -344,62 +344,62 @@ Gart thought 了一会儿。"你熟悉 Medusans 物种吗？"
 
 "什么类型的 options？"麦考伊问。
 
-"我想有能力 access computers 而不需要 manually typing out Morse code。另外我想 access visual and audio information from IS-Net directly into my head，"塔马斯 spelled out 用莫尔斯电码。
+"我想有能力 访问 computers 而不需要 manually typing out Morse code。另外我想 访问 visual and audio information from IS-Net directly into my head，"塔马斯 spelled out 用莫尔斯电码。
 
 起初麦考伊 balked，说 things like，"如果上帝 meant 我们 wired to computers，他会 made us out of silicon。"但最终，麦考伊 consented 某些 upgrades。他 figure 它会 facilitate communication 直到塔马斯 learned speak。
 
-塔马斯花了几天才有 full control 过他植入物中的"Extras"，但他一 got hang of it，他就能 access 他的 email 甚至不用 get up 从他的床。他也能 surf IS-net 在他 head 的 comfort 中，accessing all sorts of information，words 要么 translated directly into audio speech，或 Morse Code，depending 他的 preference。无论如何，他有 access everything，无论它是 audio，visual，olfactory 或 tactile。最重要的是，他的 writing speed increased 到 thought speed。他现在 able knock out whole stories 在 quarter of time 它 previously took。他也能 write and record entire musical scores。如果不是 Gart 的 consistent interruptions，他永远不会 left 他的 head。麦考伊不在那里看到他的 brain 如何 well taken implant，因为他不得不 return Earth。
+塔马斯花了几天才有 full control 过他植入物中的"Extras"，但他一 got hang of it，他就能 访问 他的 email 甚至不用 get up 从他的床。他也能 surf IS-net 在他 head 的 comfort 中，accessing all sorts of information，words 要么 translated directly into audio speech，或 Morse Code，depending 他的 preference。无论如何，他有 访问 everything，无论它是 audio，visual，olfactory 或 tactile。最重要的是，他的 writing speed increased 到 thought speed。他现在 able knock out whole stories 在 quarter of time 它 previously took。他也能 write and record entire musical scores。如果不是 加特 的 consistent interruptions，他永远不会 left 他的 head。麦考伊不在那里看到他的 brain 如何 well taken implant，因为他不得不 return Earth。
 
-"塔马斯，当我们 added upgrades 到你的 implant，你告诉我你会 practice 我 supplied 给你的 bio and neuro feedback programs，"Gart 说。
+"塔马斯，当我们 added upgrades 到你的 implant，你告诉我你会 practice 我 supplied 给你的 bio and neuro feedback programs，"加特 说。
 
-"它们很难，"塔马斯 thought，他的 words spelling out over Gart 的 PADD，即使他也能 hear 他的 thoughts。
+"它们很难，"塔马斯 thought，他的 words spelling out over 加特 的 PADD，即使他也能 hear 他的 thoughts。
 
-"好吧，你的 computer access time 从现在起 limited，将 awarded based 你的 efforts and performance of biofeedback exercises，"Gart 说。
+"好吧，你的 computer 访问 time 从现在起 limited，将 awarded based 你的 efforts and performance of biofeedback exercises，"加特 说。
 
 "从现在起，如果你想 communicate with someone，你必须 use your voice。"
 
 "我不 understand game，"塔马斯说。
 
-"你有没有 notice 我们 communicating 如何 different 比如说和麦考伊，或娜塔莉亚？"Gart 问。
+"你有没有 notice 我们 communicating 如何 different 比如说和麦考伊，或娜塔莉亚？"加特 问。
 
 "没有 continuous feedback，"塔马斯 observed。"像斯波克。这是因为你们是 alien 我们 share 这个游戏。"
 
-"不，reason 他们没有 continuous feedback，"Gart explained，"如你 put it，是因为他们不是 telepaths。我没有 allow 你 establish permanent telepathic bond 和我，所以你也不会 get it 和我。"
+"不，reason 他们没有 continuous feedback，"加特 explained，"如你 put it，是因为他们不是 telepaths。我没有 allow 你 establish permanent telepathic bond 和我，所以你也不会 get it 和我。"
 
 "我不 understand，"塔马斯说。
 
-"Gart 问，"你对 non-telepaths，娜塔莉亚和胡安，ignoring 你的 explanation 是什么？
+"加特 问，"你对 non-telepaths，娜塔莉亚和胡安，ignoring 你的 explanation 是什么？
 
 "我不是 adult，所以他们不能 respond 我，"塔马斯说。
 
-"哦，但他们 talked 你的妹妹，乔薇特，"Gart pointed out。
+"哦，但他们 talked 你的妹妹，乔薇特，"加特 pointed out。
 
 "他们 biologically compelled，"塔马斯说，"即使如此，他们没有 truly communicate 她。他们经常 failed listen and identify 她 emotional state。在那个 regard，我们 both equal。Children are lesser beings。这是唯一 explanation 为什么我们 so often disregarded as entities。"
 
-Gart sighed。"你 created pretty solid paradigm。你有 explanation everything。"
+加特 sighed。"你 created pretty solid paradigm。你有 explanation everything。"
 
 "不是 everything，"塔马斯 thought。
 
-"真的？"Gart 问，not a little sarcastic。Dealing 塔马斯就像 dealing know-it-all teenager。"你不知道什么？"
+"真的？"加特 问，not a little sarcastic。Dealing 塔马斯就像 dealing know-it-all teenager。"你不知道什么？"
 
 "我不知道。如果我知道，那么我会知道……"
 
-Gart laughed out loud。
+加特 laughed out loud。
 
-"你 hungry 吗？"Gart 问。
+"你 hungry 吗？"加特 问。
 
 "不。"
 
-"好吧，跟我来。我们要 relax awhile，"Gart 说。
+"好吧，跟我来。我们要 relax awhile，"加特 说。
 
-"我能 access IS-Net 吗？"塔马斯问。
+"我能 访问 IS-Net 吗？"塔马斯问。
 
-"不，我们要做 fun 的事情，是 social，"Gart 说。
+"不，我们要做 fun 的事情，是 social，"加特 说。
 
 "Net 是 social interaction 的一种形式……"塔马斯解释。
 
-"对 Net 说不，对 let's go 说是，"Gart insisted。
+"对 Net 说不，对 let's go 说是，"加特 insisted。
 
-Gart 带塔马斯去博物馆，他们 walked around talked about art。塔马斯经常更 interested observing people 而不是 art。他经常 got annoyed 当 Gart interrupted 他的 observations about people with questions about art。他 especially interested 一个 redhead 谁 sitting Indian style 在地板上，drawing on sketch pad。Gart distracted 他 again。"那么，你在这里看到什么？"
+加特 带塔马斯去博物馆，他们 walked around talked about art。塔马斯经常更 interested observing people 而不是 art。他经常 got annoyed 当 加特 interrupted 他的 observations about people with questions about art。他 especially interested 一个 redhead 谁 sitting Indian style 在地板上，drawing on sketch pad。加特 distracted 他 again。"那么，你在这里看到什么？"
 
-当 Gart 问他 about art，塔马斯 felt 他被 tested，他 becoming more and more frustrated 他 couldn't find answer Gart was looking for。他一直 managed find out what people wanted，再一次，他 reminded himself Gart 是 alien 这是 new game master。但那 exactly 意味着什么？它可能意味着有些人 easier understand 比其他人？有 actually different ways communicate？如果 Morse Code 是 game，waving hand 能是 game？
+当 加特 问他 about art，塔马斯 felt 他被 tested，他 becoming more and more frustrated 他 couldn't find answer 加特 was looking for。他一直 managed find out what people wanted，再一次，他 reminded himself 加特 是 alien 这是 new game master。但那 exactly 意味着什么？它可能意味着有些人 easier understand 比其他人？有 actually different ways communicate？如果 Morse Code 是 game，waving hand 能是 game？

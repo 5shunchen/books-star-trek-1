@@ -264,9 +264,9 @@
 
 "在合理范围内？"麦考伊问。
 
-"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 child 喜欢quali纽带，但他的 想法patterns emulate adult thinking。这是你可以预期的 child 在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 physiology。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
+"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 child 喜欢quali纽带，但他的 想法patterns emulate adult thinking。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
 
-"你必须 treat 他好像他是 abused？"麦考伊问。
+"你必须 对待 他好像他是 被虐待？"麦考伊问。
 
 "我不这么认为，"加特 说，"他的所有 纽带mates，如果你愿意的话，似乎都有 reasonably healthy attitudes towards sex，所以我不把他和 child abuse case 比较。他不是任何 sexual aggression 的 target。他只是比 non-telepath 更 aware 性 思想 和 emotions。我们在 Betazoid 上看到很多这个 particular issue。大多数 Betazoid kids 简直 ignore adult 思想 直到 puberty onset，然后我们 deal 他们的 curiosity relative 到孩子的 temperament。当然， 考虑到塔姆的 obsessive compulsive tendencies，如果他 fully entered puberty 在成年人周围 without establishing better boundaries，他肯定会有 some difficul纽带 啊ead。"
 
@@ -290,7 +290,7 @@
 
 "不，他 clearly not insane，但可以说他的 predilection towards genius 是那个 prenatal event 的 manifestation，"加特 说，"我一直 观察 一些 recur戒指 思想 和 patterns，这是他 OCD 的一部分。基于这个 encounter 和你发给我的 医护人员al profile，我 highly recommend 他 fitted 一个 植入物 帮助 alleviate 一些 anxiety 和 depression symptoms，以及 control compulsive behavior 和 attention deficit disorder。Implants 将 帮助monitor more closely 他的 glutamate，serotonin，和 gamma-aminobutric acid levels，并在 deficient 时 add neurotransmitters。"
 
-"我 害怕你会 recommend 那个，"麦考伊说，"这不是第一次 suggest 这个 treatment。"
+"我 害怕你会 recommend 那个，"麦考伊说，"这不是第一次 suggest 这个 对待ment。"
 
 "这不是坏事，医生，"加特 说，"有了这个 植入物，我们可以 rely totally on 建议ing 和 biofeedback technologies，不被 limit 到 psychotropic drugs。设备只会 increase deficient levels of natural neurotransmitters，并且只在医生的指导下。"
 

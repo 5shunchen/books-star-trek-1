@@ -80,11 +80,11 @@
 
 "啊，拜托，"他想，用双手 抓住 它，用他所有的重量 拉。
 
-它 came down，chutes 部署了。他又一次 bounced 在他的座位上，当 speed 改变时。他可以看到他上面的 chutes，这有点 disheartening，因为他 right at 它，当三个 chutes 中的一个 tore 时。太空舱开始 spin。spin accelerated 直到它 wound 剩余的 chutes completely closed。太空舱 hard 撞击 海洋。这次当塔马斯 bounce 时，他 撞击 了他的头，被 knocked out 寒冷。另一个红灯是自动筏。太空舱 disappeared 进入海洋，slowed，停留 在一米深度，然后 slowly continued 它的 descent 到海底。幸运的是，这里的 floor 只有七十米，well within 潜水队的 para会合ers。
+它 came down，chutes 部署了。他又一次 bounced 在他的座位上，当 speed 改变时。他可以看到他上面的 chutes，这有点 disheartening，因为他 right at 它，当三个 chutes 中的一个 tore 时。太空舱开始 spin。spin accelerated 直到它 wound 剩余的 chutes completely closed。太空舱 努力 撞击 海洋。这次当塔马斯 bounce 时，他 撞击 了他的头，被 knocked out 寒冷。另一个红灯是自动筏。太空舱 disappeared 进入海洋，slowed，停留 在一米深度，然后 slowly continued 它的 descent 到海底。幸运的是，这里的 floor 只有七十米，well within 潜水队的 para会合ers。
 
 当然，塔马斯不知道潜水队会来 救援。当太空舱开始 充满 冷海水时，他 惊醒。他的头 疼痛，跳动 疼痛，这几乎足以 分散 他从 其余 的 疼痛，以及他的 血液 如何与 水 一起 旋转 的 奇怪 方式。谁会想到头部伤口流血这么多。他 准备屈服于 他的 疲惫，可能已经屈服了，如果不是他看到了海豚的脸。不是 Star，但没关系。海豚认识他，来这里帮助。
 
-他 unbuckled 他的 吊索，reach up 到舱口。它不会 budge。他太 疲倦了，想不出为什么它不会 open。也许他 撞击 得如此 hard 它 jammed。也许是 pressure differential。无论哪种方式，他不知道做什么关于它。水现在到他的膝盖。每只海豚轮流 peer in 通过舱口上的小 port，unable 做任何事情，只能 唱encouragement。塔姆再次试了门，然后 remembered 爆炸螺栓。他 activated 系统。海豚 scattered。每个 bolt 灼烧d off 按顺序，每个 bolt 曾经的地方，一股水 came 喷洒ing 通过。门仍然 sealed tight。他 sighed，laid 他的头 against 门， 闭上他的眼睛。他以前 drowned 过一次，在麦考伊带他到这个世界的时候。最糟糕的部分是那第一口气。在那之后，他的 痛苦 会少很多。
+他 unbuckled 他的 吊索，reach up 到舱口。它不会 budge。他太 疲倦了，想不出为什么它不会 open。也许他 撞击 得如此 努力 它 jammed。也许是 pressure differential。无论哪种方式，他不知道做什么关于它。水现在到他的膝盖。每只海豚轮流 peer in 通过舱口上的小 port，unable 做任何事情，只能 唱encouragement。塔姆再次试了门，然后 remembered 爆炸螺栓。他 activated 系统。海豚 scattered。每个 bolt 灼烧d off 按顺序，每个 bolt 曾经的地方，一股水 came 喷洒ing 通过。门仍然 sealed tight。他 sighed，laid 他的头 against 门， 闭上他的眼睛。他以前 drowned 过一次，在麦考伊带他到这个世界的时候。最糟糕的部分是那第一口气。在那之后，他的 痛苦 会少很多。
 
 一些 火花飞溅 从他的控制台，然后突然整个船 断电。灯 消失，变得 黑暗。当水到他的下巴时，他 沉入 进入 寒冷，黑暗ness。当他这样做时，他 拉动释放舱口的手柄，sp戒指 mechanism opened 它足够让一只海豚 推 它的鼻子进入 舱内。其他海豚 推ed 舱口剩余的方式打开，然后那一只 伸进去，抓住 塔马斯 由他的浮手，咬住，拖 他出来。
 
@@ -172,7 +172,7 @@
 
 "娜塔莉亚，"麦考伊说，"我来找你是因为我知道你有  力量对付有  挑战的孩子。他的  挑战超过了我们任何一个人的 应对能力。我需要你 放手。就像我必须 放手。这是当我需要你  理性并  考虑他的 更大的福祉 的时候。"
 
-"如果有任何 consolation，"斯波克说，"你与他的 纽带永远不会 完全断裂。当涉及到 心灵纽带时，时间和空间 不是 限制因素。会有  时候当你们 互相想起 到对方，或被 让他想起 某事，以这种方式，你们的  心灵将 连接并 分享你们 分享 的爱。你将能够  通信与他，并且，最终，最终你们可以 reunited。但现在，有必要  切断你与他的 纽带。"
+"如果有任何 安慰，"斯波克说，"你与他的 纽带永远不会 完全断裂。当涉及到 心灵纽带时，时间和空间 不是 限制因素。会有  时候当你们 互相想起 到对方，或被 让他想起 某事，以这种方式，你们的  心灵将 连接并 分享你们 分享 的爱。你将能够  通信与他，并且，最终，最终你们可以 重聚。但现在，有必要  切断你与他的 纽带。"
 
 "对不起，娜塔莉亚，"麦考伊说，"我一定是老了，才会  犯错得如此严重。"
 
@@ -182,11 +182,11 @@
 
 "不是你的错，"斯波克说。
 
-"我仍然 感responsible，"胡安说，"他用了我的工作 authorization codes……"
+"我仍然 感responsible，"胡安说，"他用了我的工作 授权代码……"
 
-"没有人会 想象他会 拉 这样的 stunt，更不用说  有能力了，"麦考伊说，"他在 掩盖他的 踪迹方面 相当聪明。"
+"没有人会 想象他会 拉 这样的 蠢事，更不用说  有能力了，"麦考伊说，"他在 掩盖他的 踪迹方面 相当聪明。"
 
-"但什么样的  恶魔能  驱使他如此 hard？"胡安问。
+"但什么样的  恶魔能  驱使他如此 努力？"胡安问。
 
 "他想赢，"麦考伊说。说到那，麦考伊 remembered 他最亲密的朋友，詹姆斯·T·柯克。他 looked 到塔马斯 searching 任何 resemblance。没有一个人 individual feature suggest 柯克，或任何他的其他 former companions 的 genes 塔马斯 shared。他的 skin tone 是 beautiful rich color，只有从 人类races 的 mixture 中才能出现。他的 genome 真正 representative 了人类会是什么样子，如果 humanity 从来没有 divided 自己 superficial，水面 features，像 skin pigment 和 body types。
 

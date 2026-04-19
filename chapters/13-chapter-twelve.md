@@ -1254,7 +1254,7 @@ Thalymum mumble，"绝对 brilliant！"他没有注意两个上将和舰长。
 
 "我不明白，"塔马斯说。
 
-"几种可能性之一已经 玩out。要么有人不喜欢你的 thesis，有人不喜欢你，也许是因为那个月亮 stunt，或者有人试图 prevent Spock 的 reputation 被 this paper 的 publication  tarnished，"麦考伊说。"所以，你的 papers 被 conveniently misplaced 和 misdirected。"
+"几种可能性之一已经 玩out。要么有人不喜欢你的 thesis，有人不喜欢你，也许是因为那个月亮 蠢事，或者有人试图 prevent Spock 的 reputation 被 this paper 的 publication  tarnished，"麦考伊说。"所以，你的 papers 被 conveniently misplaced 和 misdirected。"
 
 "所以，你告诉我的是，如果你们任何人 读过这个，我会在第一次 apply 时被 accept 进入学院？"塔马斯问。
 

@@ -376,7 +376,7 @@
 
 "他们 生物学上的强迫，"塔马斯说，"即使如此，他们没有 真正交流 她。他们经常 未能倾听和识别 她 情感状态。在那个 regard，我们 双方平等。孩子是低等生物。这是唯一 explanation 为什么我们 so often disregarded as enti纽带。"
 
-加特 sighed。"你 created pretty solid paradigm。你有 explanation everything。"
+加特 sighed。"你 created pretty 坚实的paradigm。你有 explanation everything。"
 
 "不是 everything，"塔马斯 thought。
 

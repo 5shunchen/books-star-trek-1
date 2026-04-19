@@ -36,7 +36,7 @@
 
 和他一起在天空中的还有宇宙飞船约纳达号。它看起来像一个小行星，但设计得太 完美球形，不可能是除智能 伪影以外的任何东西。它可能 仍然藏有 什么 宝藏？他 想知道。穿上 宇航服，带着 用手电筒照亮 它 黑暗的走廊，探索它内部将是一个 梦想。他 想知道 它是否还有 电力。也许有一天他会 探索 它，但不是今天……
 
-第二级 burned out，他又一次 thrust forward 到他的 其余raint 的尽头。他 weightless 并且 stomach sick，但他有 presence of 思想释放第二级。当小型 explosive  blew 太空舱 自由 从第二级时，有一个小的 推，然后太空舱开始 摔倒。通过他的窗户，他看到世界，然后 space，星际飞船无畏号 looming 曾经closer，太阳，然后又是世界。他一遍又一遍地 摔倒，直到 air thickened。在最后一次 revolution 中，他以为他看到了一艘 shuttle。直到太空舱最终在 thickening 的大气中 righted 自己，他才看到确实有一艘 shuttle 跟随他。他可以看到 flames jetting off 它的外壳，当它开始 re-entry 时。他知道同样的事情发生在他的太空舱上，这解释了 rising 的温度。这也 disappointed 他，因为这 confirmed 他开始 re-entry 太早了。他 expected 在 orbit 中大约七小时半，这样他就可以 溅落 靠近洛拉尔海滩，向 chee戒指 的人群。early down 意味着他不知道他实际会在哪里 land。最糟糕的部分是当他意识到他没有 equipped 在陆地上 down，只能在水中。所以，我忘了 plan 那个 contingency，他 s寒冷 自己。
+第二级 burned out，他又一次 thrust forward 到他的 其余raint 的尽头。他 weightless 并且 stomach sick，但他有 presence of 思想释放第二级。当小型 explosive  blew 太空舱 自由 从第二级时，有一个小的 推，然后太空舱开始 摔倒。通过他的窗户，他看到世界，然后 space，星际飞船无畏号 looming 曾经closer，太阳，然后又是世界。他一遍又一遍地 摔倒，直到 air thickened。在最后一次 revolution 中，他以为他看到了一艘 穿梭机。直到太空舱最终在 thickening 的大气中 righted 自己，他才看到确实有一艘 穿梭机 跟随他。他可以看到 flames jetting off 它的外壳，当它开始 re-entry 时。他知道同样的事情发生在他的太空舱上，这解释了 rising 的温度。这也 disappointed 他，因为这 confirmed 他开始 re-entry 太早了。他 expected 在 orbit 中大约七小时半，这样他就可以 溅落 靠近洛拉尔海滩，向 chee戒指 的人群。early down 意味着他不知道他实际会在哪里 land。最糟糕的部分是当他意识到他没有 equipped 在陆地上 down，只能在水中。所以，我忘了 plan 那个 contingency，他 s寒冷 自己。
 
 ---
 
@@ -44,7 +44,7 @@
 
 "斯波克，别再说我们不能做什么，开始告诉我我们能做什么！"麦考伊说。
 
-"我已经 绘制 了他的航线。他会在这里 溅落。一个 救援 团队正在路上。shuttle 将继续 pur宇航服，"斯波克说。
+"我已经 绘制 了他的航线。他会在这里 溅落。一个 救援 团队正在路上。穿梭机 将继续 pur宇航服，"斯波克说。
 
 "我想去那里，"麦考伊说。
 
@@ -196,7 +196,7 @@
 
 "好吧，"麦考伊最后说，"永远不会有无聊的时刻。"
 
-"确实，"斯波克同意，"我们坐 shuttle 吗？"
+"确实，"斯波克同意，"我们坐 穿梭机 吗？"
 
 "这么多年后，你还得问？"麦考伊问。
 

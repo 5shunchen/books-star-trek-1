@@ -258,7 +258,7 @@ Data 点头。"除了是一个 accomplished musician，你也是一个 philosoph
 
 "我不认为今天与任何其他日子不同，因为我没有  情绪来 gauge 这样的 variances，"Data 说，没有意识到加西亚迷失在 memories 中。
 
-"然而，我注意到我今天运行的 mental tasks 数量似乎比平时少。我将 note 对你的  感情的观察，并在将来 reflect 这个事件时记住它。"
+"然而，我注意到我今天运行的  心理tasks 数量似乎比平时少。我将 note 对你的  感情的观察，并在将来 reflect 这个事件时记住它。"
 
 在塔马斯在 El 的事务结束后，Data 护送塔马斯进入轨道。塔马斯直到看到 shuttle 上的字样：NCC ENTERPRISE 1701 D，就在 shuttle 的 Galileo 名称下方，才与 Data 和企业号建立联系。他用鼻子深吸了一口气，想知道 Selar 是否曾经在这个特定的 shuttle 中。如果她曾经，任何 remaining Selar 的 atoms 现在都太 diffused 而无法 notice。他想象在舰队中最著名的船上是什么感觉。然而，他保留了他的问题，因为 Data 和他决定唱一首歌。他们唱了一首古老的地球歌曲，《摩洛哥之路》。
 

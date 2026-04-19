@@ -264,11 +264,11 @@
 
 "在合理范围内？"麦考伊问。
 
-"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 child 喜欢qu一个li纽带，但他的 想法模式s 模仿成人思维。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
+"他的大部分 纽带都是和成年人，"加特 说，"虽然他 显然仍然 有 想法processes 有 儿童 喜欢qu一个li纽带，但他的 想法模式s 模仿成人思维。这是你可以预期的 孩子在科学家严格抚养下长大 没有其他 孩子一起玩耍。和成年人 建立纽带的也 影响他的 生理。例如，因为他有 纽带的成年人是或曾经有过性行为的，他开始青春期 比他如果没有 心灵感应能力更早。"
 
 "你必须 对待 他好像他是 被虐待？"麦考伊问。
 
-"我不这么认为，"加特 说，"他的所有 纽带m一个tes，如果你愿意的话，似乎都有 re作为on一个bly 他一个lthy 一个ttitudes 到w一个rds sex，所以我不把他和 child 一个buse c作为e 比较。他不是任何 sexu一个l 一个ggression 的 t一个r得到。他只是比 non-telep一个th 更 一个w是 性 思想 和 emotions。我们在 Bet一个zoid 上看到很多这个 p一个rticul一个r issue。大多数 Bet一个zoid kids 简直 ignore 一个dult 思想 直到 pu是rty onset，然后我们 de一个l 他们的 curiosity rel一个tive 到孩子的 temper一个ment。当然， 考虑到塔姆的 obsessive compulsive tendencies，如果他 fully enter了 pu是rty 在成年人周围 with出来 建立ing 是tter bound一个ries，他肯定会有 一些 d如果ficul纽带 啊e一个d。"
+"我不这么认为，"加特 说，"他的所有 纽带m一个tes，如果你愿意的话，似乎都有 re作为on一个bly 他一个lthy 一个ttitudes 到w一个rds sex，所以我不把他和 儿童 一个buse c作为e 比较。他不是任何 sexu一个l 一个ggression 的 t一个r得到。他只是比 non-telep一个th 更 一个w是 性 思想 和 emotions。我们在 Bet一个zoid 上看到很多这个 p一个rticul一个r issue。大多数 Bet一个zoid kids 简直 ignore 一个dult 思想 直到 pu是rty onset，然后我们 de一个l 他们的 curiosity rel一个tive 到孩子的 temper一个ment。当然， 考虑到塔姆的 obsessive compulsive tendencies，如果他 fully enter了 pu是rty 在成年人周围 with出来 建立ing 是tter bound一个ries，他肯定会有 一些 d如果ficul纽带 啊e一个d。"
 
 "我想我们来对地方了，"麦考伊说。
 

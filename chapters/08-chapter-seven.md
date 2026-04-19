@@ -206,7 +206,7 @@
 
 ---
 
-在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 tell 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
+在许多方面，贝塔泽德非常像地球。通过相机的 lens 看它，人类可能无法 看出 一个 modern day 贝塔泽德城市从一个 modern day 地球城市。人们 going about business，shopping，exchanging information，eating，或只是 everyday 正常 social gathe戒指s 不会 seem 任何 different 从 untrained eye 的任何 gathe戒指 of 人类beings。当然，如果一个人 observed closely，有 differences。人类 communication，如 measured by science，大约 80% body language 和 20% verbal。在贝塔泽德， 口头和 body language 几乎 non-existent，正如在一个 population of telepaths 中可以预期的。他们的 ot 她感觉到s，sight，smell，和 hea戒指，和人类 equally as good，如果一个人是一个 really 好observer，可能会 notice 在 general population 中，两个 Betazoids 之间 distance 越大，他们越 likely 使用 gestures 或  口头language 来 communicate，但 up  关闭and personal，这些 behaviors 通常 抓住 a back seat。即使 Betazoid 上 greatest telepaths 也经常使用 gestures 来 summon 某个 distance greater than 他们 send 或 receive telepathy 能力的人。唯一其他时间他们可能使用 gestures 是当另一个人是非心灵感应者，正如 加特 泽克斯 当他看到麦考伊从 晚期 出来时所做的那样。
 
 麦考伊 adjusted 他的眼睛到 noonday sun，看到 加特 waving，并 waved back。麦考伊 maneuvered 过 crowd，塔马斯 dragging 在后面。男孩看起来 sulking，从他 gait 和 facial expression 判断，加特 得到了 boy's clinical depression severity 的 好feel。Up  关闭and personal，如果他没有 trained 对付 acute  心理illness，它会是 overwhelming。一些附近的 telepaths picked up depression 并 c丝袜 给塔马斯更宽的 berth，但没有人 resist looking 他试图 fathom 怎么有人 so young 能 so apathetic to living。
 
@@ -226,11 +226,11 @@
 
 塔马斯 无视回应，研究了 太空港航站楼 的 熙熙攘攘的人群。他 回瞪每一个盯着他的人 并 注意到 他的 故意的眼神接触 经常 让人们加快脚步，这只会 强化了她的想法他是一个 怪物。他的眼睛 停留 在一个女孩身上，她没有 观察 他。她是 星际舰队，穿着 制服 的 迷你裙款式。它的 黄黑条纹 让他想起 他一只 大黄蜂，她的 丝袜 是 透明闪亮 在 正午阳光。
 
-加特 repeated 他的 request 给塔马斯 得in the car。塔马斯已经 spent 这么多年 not communicating，他现在 indifferent 到任何 加特 的 精力s 来 engage 他。他 frowned 当麦考伊给了一个 little 推 towards the vehicle，女人 disappeared 从他的 view。他 climbed 进 vehicle 并 slid 到 far side，letting 他的 backpack 来around 到他的 lap。他 held 它到他的 胸膛 像一个 安全感 blanket，stuffed ferret 的头 sticking  通过the flap。加特 和麦考伊 climbed 进在他之后。
+加特 repeated 他的 request 给塔马斯 得in the car。塔马斯已经 spent 这么多年 not communicating，他现在 indifferent 到任何 加特 的 精力s 来 engage 他。他 皱眉道 当麦考伊给了一个 little 推 towards the vehicle，女人 disappeared 从他的 view。他 climbed 进 vehicle 并 slid 到 far side，letting 他的 backpack 来around 到他的 lap。他 held 它到他的 胸膛 像一个 安全感 blanket，stuffed ferret 的头 sticking  通过the flap。加特 和麦考伊 climbed 进在他之后。
 
 "我听说你下周要八岁了，"加特 说。
 
-塔马斯 frowned。"按地球年。在奥兰，我还有四个月。"
+塔马斯 皱眉道。"按地球年。在奥兰，我还有四个月。"
 
 "那么，我们按地球年算，"加特 说。
 
@@ -244,13 +244,13 @@
 
 "我为什么要那样做？我不仅 出生在过去，我也不是 出生在这个星球。如果有 庆祝活动，它很久以前就完成了，在另一个 远离这里的星球，"塔马斯想。
 
-"我看到有人和瓦肯人混在一起，"加特 说， chuckling。"如果我没记错的话，庆祝每个人出生的 anniversary 是人类 custom。你和加西亚一家在一起时没有庆祝任何生日吗？"
+"我看到有人和瓦肯人混在一起，"加特 说， 轻笑道。"如果我没记错的话，庆祝每个人出生的 周年纪念日 是人类 习俗。你和加西亚一家在一起时没有庆祝任何生日吗？"
 
-"哦，"塔马斯想，"他们玩了一个我没有参与的游戏。此外，你问我是否想在贝塔泽德庆祝它是 不合逻辑，鉴于 我没有 choice in the matter。"
+"哦，"塔马斯想，"他们玩了一个我没有参与的游戏。此外，你问我是否想在贝塔泽德庆祝它是 不合逻辑，鉴于 我没有 选择余地。"
 
-加特 微笑道。"他在我看来 well adjusted，"加特 说， 转向麦考伊。
+加特 微笑道。"他在我看来 适应良好，"加特 说， 转向麦考伊。
 
-"司机，带我们去 Metsuine。即使我不是心灵感应者，我也能 tell 你们都 starving，你们会 爱那里的 food。"
+"司机，带我们去 Metsuine。即使我不是心灵感应者，我也能 看出 你们都 饿坏了，你们会 爱那里的食物。"
 
 电动车的 司机带他们从 spaceport 到 市中心 显然是一种 机器人，但塔马斯不感兴趣在它的瘦架子，或动画脸 当它接受指令。塔马斯 闭上他的眼睛并靠回，不允许自己 看窗外风景的乐趣。他们可以 强迫他来这里，但他们不会 强迫他 喜欢它。
 

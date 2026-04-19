@@ -1212,7 +1212,7 @@ Jaxa 脸红了，但以良好的幽默接受了。加西亚让她给他戴上眼
 
 萨利曼 靠在桌子上，把手放在桌子上，好像在支撑自己。"我应该看到那个，"他 mumbled。"所以，你 信Kirk 的 solution 给了他们一个 more efficient system 来 manage 他们的 resources，但现在没有 wars 或 routine 撞击s，population 最终将开始增长，直到他们，再次，outstripped 他们的 resources，consequently re 转向他们到 crisis，require 他们 adopt gangster mentality 的 first place？"
 
-"那是我能得出的唯一结论，"塔马斯说。"简单的事实是，Iotians 有一个 problem，没有 telling 什么 solution 他们最终会 来up with。他们 原创 state 是一个 peaceful，loving society，有一个 naturalistic philosophy，explained nature 的 biological pressures 和 balance。Hood 向他们展示了一个 alternative 到 peaceful society。这对他们来说 works so well，和 for so long，以至于 going back 可能 impossible。我们看到了许多 examples，当他们的 population 失控时，socie纽带 会做什么。这些 choices 大多不是 people friendly。例如，Gideon 的人 kidnapped Kirk 来 spread Vegan choriomenegitis，一种 Gideon 人 望会 kill enough people 以至于可能有 standing room 的疾病。"
+"那是我能得出的唯一结论，"塔马斯说。"简单的事实是，Iotians 有一个 problem，没有 看出ing 什么 solution 他们最终会 来up with。他们 原创 state 是一个 peaceful，loving society，有一个 naturalistic philosophy，explained nature 的 biological pressures 和 balance。Hood 向他们展示了一个 alternative 到 peaceful society。这对他们来说 works so well，和 for so long，以至于 going back 可能 impossible。我们看到了许多 examples，当他们的 population 失控时，socie纽带 会做什么。这些 choices 大多不是 people friendly。例如，Gideon 的人 kidnapped Kirk 来 spread Vegan choriomenegitis，一种 Gideon 人 望会 kill enough people 以至于可能有 standing room 的疾病。"
 
 "把 Kirk 排除在外，"亚当 说，踢加西亚的椅子。
 
